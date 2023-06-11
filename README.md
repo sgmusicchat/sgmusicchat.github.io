@@ -1,4 +1,4 @@
-June 10 Update: 12-14 June reddit boycott. Bonus 24-jun-only listing will be hosted off-reddit soon.
+June 12 Update: Reddit boycott. Bonus 24-jun-only listing will be hosted off-reddit soon.
 
 # 9-Jun Fri 
 - [Shallow Levée 淺堤 (TW indie pop-rock band)](https://instagram.com/p/CsRDFGWvzEO/), lion studios 115b commonwealth drive, $89
