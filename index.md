@@ -174,7 +174,7 @@ June 12 Update: Reddit boycott. Bonus 24-jun-only listing will be hosted off-red
 &nbsp; 
  
 # 16-Jun Fri
-- [SUGA of BTS | Agust D - Day 1](https://ticketmaster.sg/activity/detail/23_suga), indoor stadium, $168 soldout
+- [SUGA of BTS / Agust D - Day 1](https://ticketmaster.sg/activity/detail/23_suga), indoor stadium, $168 soldout
 - [伍佰 WU BAI AND CHINA BLUE ROCK STAR 2023 巡迴演唱会 - Day 1](https://www.sistic.com.sg/events/wubai0623), resorts world sentosa, $78
 - Metal/Core/HC Gig: [That Incredble Gig in JUNE ft. TARIOT, Aggressive Raisin Cat, Destiny, Overthrown, Tailgates, Shy Guys](https://instagram.com/p/CsNnShwhDei/), centre 42 waterloo st (bras basah), **$16**
 - Esplanade: [Cheats (PH)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/rocking-the-region/cheats), outdoor, **free**
