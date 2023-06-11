@@ -174,7 +174,7 @@ June 12 Update: Reddit boycott. Bonus 24-jun-only listing will be hosted off-red
 &nbsp; 
  
 # 16-Jun Fri
-- [SUGA of BTS / Agust D - Day 1](https://ticketmaster.sg/activity/detail/23_suga), indoor stadium, $168 soldout
+- [SUGA of BTS / Agust D - Day 1](https://ticketmaster.sg/activity/detail/23_), indoor stadium, $168 soldout
 - [伍佰 WU BAI AND CHINA BLUE ROCK STAR 2023 巡迴演唱会 - Day 1](https://www.sistic.com.sg/events/wubai0623), resorts world sentosa, $78
 - Metal/Core/HC Gig: [That Incredble Gig in JUNE ft. TARIOT, Aggressive Raisin Cat, Destiny, Overthrown, Tailgates, Shy Guys](https://instagram.com/p/CsNnShwhDei/), centre 42 waterloo st (bras basah), **$16**
 - Esplanade: [Cheats (PH)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/rocking-the-region/cheats), outdoor, **free**
@@ -212,7 +212,7 @@ June 12 Update: Reddit boycott. Bonus 24-jun-only listing will be hosted off-red
 # 17-Jun Sat
 - [CLANG: 克朗! CHINESE Indie Music Fest - ft 麋先生 MIXER, 9m88, 旺福 WONFU, 守夜人 NIGHT KEEPERS, 海豚刑警 IRUKA PORISU, 甜约翰 Sweet John, 温室杂草 Easy Weeds](https://clang.sg/clang/about/), pasir panjang power stn, $120
 - [伍佰 WU BAI AND CHINA BLUE ROCK STAR 2023 巡迴演唱会 - Last Day](https://www.sistic.com.sg/events/wubai0623), resorts world sentosa, $78
-- [SUGA of BTS | Agust D - Day 2](https://ticketmaster.sg/activity/detail/23_suga), indoor stadium, $168 soldout
+- [SUGA of BTS / Agust D - Day 2](https://ticketmaster.sg/activity/detail/23_suga), indoor stadium, $168 soldout
 - [Dewi Persik - Dangdut Mania ft Rina Nose and Nabila Maharani (INA), Rosalina Musa (SG)](https://www.sistic.com.sg/events/mania0623), star theatre buona vista, $88
 - Indie Rock Gig: [TURN IT UP Vol II Rabak Records - 8forty5 EP Launch, KYYRA, Nosedive, feelslikeyou, freshpoutine](https://instagram.com/p/Cs-M1ZRP-qe/), see link, $20 or doors
 - Indie Rock Gig: [Pink Cloud Summer - Bellied Star, MRTNS, FADER, Line Drive, Late Culture](https://pinkcloudsummer.peatix.com/), see link, $25 soldout
@@ -259,7 +259,7 @@ June 12 Update: Reddit boycott. Bonus 24-jun-only listing will be hosted off-red
 &nbsp; 
  
 # 18-Jun Sun
-- [SUGA of BTS | Agust D - Last](https://ticketmaster.sg/activity/detail/23_suga), indoor stadium, $168 soldout
+- [SUGA of BTS / Agust D - Last](https://ticketmaster.sg/activity/detail/23_suga), indoor stadium, $168 soldout
 - [ITCHYWORMS (PH rock)](https://sg.bookmyshow.com/events/itchyworms-live-in-singapore/ITCHYW23), timbre one-north, $50
 - [Jesslyn 陈佩贤 x YU JIA TSENG 曾昱嘉 - Heartfelt Concert 走心音乐会4](https://ticketmaster.sg/activity/detail/23_dreamjun2023), esplanade, $88
 - Esplanade: [monda(e) - instrumental rock/post](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/rocking-the-region/mondae), outdoor, **free**
