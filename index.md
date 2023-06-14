@@ -289,7 +289,7 @@ June 14 Update: Updated and new gigs with \*. As a masochist I added in events i
 - DJ, Yang Club: [Asian Nation ft Noizefaktor (my), sherpa, reiko, mc hund](https://instagram.com/p/Cs0hKYgO8_0/), clarke quay
 - DJ, Majesty Chen: [Even Up Booze & Schmooze Mixer](https://instagram.com/p/CsvWRZoLjwZ/),  Oxley Tower L20, 138 robinson rd, $49
 - DJ, KPO: [PET SHOP BOYS Tribute Night - with DJ Kenneth Siew](https://instagram.com/p/Cs_SefsOpXi/), beside orchard central (somerset)
-- \* DJ, Potato Head: [Suren (house/tech night)](https://www.instagram.com/p/CstThAvNYYq/)
+- \* DJ, Potato Head: [Suren (house/tech night)](https://www.instagram.com/p/CstThAvNYYq/), 36 Keong Saik Rd, bar bistro
 - \* DJ, Offtrack: [TEMPO 03 0 Archie (ID), bongomann & daryl knows](https://instagram.com/p/CsV31fptHYf/), beside hong lim park, music gastro bar, [ticket](https://www.eventbrite.com/e/640404827077?) **$15**
 - DJ, Tuff: [Thugshop x Art Beyond Presents - BERLIN SESSIONS with MATCHY (melodic techno & house)](https://www.eventbrite.sg/e/640036746137), 138 robinson rd cbd, $37
 - DJ, HQ: [VOISKI (techno, leans ambient)](https://www.eventbrite.sg/e/639265459197), headquarters club 66A boat quay, $37
