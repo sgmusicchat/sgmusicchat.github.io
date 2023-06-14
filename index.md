@@ -167,6 +167,7 @@ June 14 Update: Updated and new gigs with \*. As a masochist I added in events i
 - DJ, Offtrack: [Nightcap with DJ ITCH (asian boogie, funk, citypop)](https://instagram.com/p/Cs8wXgZShhH/), beside hong lim park, music gastro bar
 - DJ, Potato Head: [DJ Yenn (hiphop rnb nite)](https://instagram.com/p/CstThAvNYYq/), 36 Keong Saik Rd, bar bistro
 - \* DJ, Cherry:  [K-Pop Night With Kooky x Seoul Train ft. DJ Brizzy](https://www.eventbrite.sg/e/64539077016), 133 cecil st, $22 but free for ladies
+- \* DJ, Honcho Rooftop Bar: [No Scrubs Ladies Night](https://www.instagram.com/p/CtVf2SayoE-/), 12 ann siang hill
 - \* DJ, Black Horse: [Ladies Night with Sforla & Gerlexis](https://www.instagram.com/p/CtdP5N5JABO/), ming arcade orchard L7, asian style club
 
 
@@ -182,7 +183,6 @@ June 14 Update: Updated and new gigs with \*. As a masochist I added in events i
 - \* `ITALIAN FILM FEST`: [Margins - A Love Letter to Punk Rock](https://www.instagram.com/p/CtAriMEgItm/), golden mile tower projector, $15
 - \* DJ, CLUB RICH: [DJ Dash, Lionnexus & Edge Resist - EURO RETURN 2](https://www.instagram.com/p/CtY3lcORSPU/), 114 middle road (bugis), asian style club
 - DJ, Offtrack: [Daryl Knows](https://instagram.com/p/CsacFnYy9Av/), beside hong lim park, music gastro bar
-- \* DJ, Honcho Rooftop Bar: [No Scrubs Ladies Night](https://www.instagram.com/p/CtVf2SayoE-/), 12 ann siang hill
 - \* DJ, PRISM: [Gucci Night Reggaeton Afrobeats, Latin ft DJ Skilla](https://www.eventbrite.sg/e/644949841337), prism club marina square, **free reg**
 - \* DJ, Yang Club: [Emerge by glhf -  DJs Kiara, Limmy, Miggy T, Kasho & Ez.rawr (top40s, edm, hardstyle)](https://glhfemerge.peatix.com/), clarke quay, **$15**
 
@@ -205,7 +205,7 @@ June 14 Update: Updated and new gigs with \*. As a masochist I added in events i
 - `Drag Event`: [Baby Queen Movie Screening - SG drag movie & drag aftershow](https://fomohomo.sg/event/baby-queen-family-live-the-pandemic-babies/), projector golden mile, $39
 - Gegarfest: [Gerhana Skacinta (ska/rocksteady/reggae), Ryzall Noh, Caliph Buskers](https://instagram.com/p/CtGznPDB1cu/), singapore expo, **free**
 - Gastrobeats: [Shirlyn + The UnXpected (rock)](https://instagram.com/p/Cs0e9aXtFMg/), marina bay open space, **free**
-- \* Mo's Grill & Bar West Coast: [Live Rock Night: Momotaro](https://www.instagram.com/p/CtbUhCxL1w_/), opp haw par villa, bar
+- \* Mo's Grill & Bar: [Live Rock Night: Momotaro](https://www.instagram.com/p/CtbUhCxL1w_/), opp haw par villa
 - \* [Australian International School's Music Ensemble Night](https://www.eventbrite.sg/e/635087221977), NUS Yong Siew Toh Conservatory, **$11 - $17**
 
 &nbsp; 
@@ -224,7 +224,7 @@ June 14 Update: Updated and new gigs with \*. As a masochist I added in events i
 - \* DJ, Club Hell: [Disney in Hell](https://clubhell1606.peatix.com/), 113 telok ayer (mrt), gay club $30
 - \* DJ, Luxe Club: [Hazel's GuestList x Rec Room ft K Faith, soundsoffai,dj pin, mc zax](https://luxe16jun.peatix.com/),  pan pacific singapore (esplanade), **free reg**
 - DJ, Phuture Zouk: [TRANSFIX invites TRANCE4M by Last One Standing - DJ Tony Hang, Daniel Ang and Joshen](https://instagram.com/p/Csn-zigMjgk/), zouk clarke quay
-- \* Zouk: [Sin City - Rattle, DJ Tang, KNRCK (hiphop)](https://www.instagram.com/p/CtQ9-Eyt9n9/), zouk clarke quay
+- \* DJ, Zouk: [Sin City - Rattle, DJ Tang, KNRCK (hiphop)](https://www.instagram.com/p/CtQ9-Eyt9n9/), zouk clarke quay
 - DJ, Blu Jaz: [Back to the 90s with DJ Jag x Big](https://www.eventbrite.sg/e/640883849847), blu jaz at bali ln, **$11**
 - DJ, Offtrack: [Anwar](https://instagram.com/p/CsacFnYy9Av/), beside hong lim park, music gastro bar
 - DJ, Potato Head: [The Beat Usagi + Nino Blink (disco/funk)](https://instagram.com/p/CstThAvNYYq/), 36 Keong Saik Rd, bar bistro
