@@ -26,7 +26,6 @@
 - DJ, [COLDPLAY TRIBUTE Flashback Friday by UnfilteredPresents](https://peatix.com/event/3599867), hard rock cafe orchard, $28
 - DJ, [87 Club Street Bar - DJ Matty](https://instagram.com/p/CtJBQ1gRk03/)
 - DJ, [The Gentle's Bar & Records Soft Opening - DJ Aloy (80s)](https://instagram.com/p/CtOzPcpyL7P/), 47a neil road
-- DJ, Club Hell, [Reincarnation in Hell ft mistress kiramoon](https://clubhell0906.peatix.com/), 113 telok ayer (mrt), gay club $35 soldout
 - DJ, Neil Conversion: [Beyonce Night](https://instagram.com/p/CtOVGHyujmN/), 43 Neil Road, gay bar-club
 - DJ, Offtrack: [HOLDTight (FRA)](https://instagram.com/p/CsacFnYy9Av/), beside hong lim park, music gastro bar
 - DJ, Potato Head: [Seng Wei (disco funk nite)](https://instagram.com/p/CstThAvNYYq/), 36 Keong Saik Rd, bar bistro
@@ -286,6 +285,7 @@
 - DJ, [Manifest - Jungle Beats Afrohouse + Tribal Tech - ft Cyril Labaude, Stephen Day, Joshua P](https://instagram.com/p/CtGrvnhOLcq/), Mandala Club 31 Bukit Pasoh, $30
 - DJ, [EATMEPOPTART: Electric Feel - If You Leave ft. weelikeme, fantastic dinosaur (80s s disco, pop, funk, new wave)](https://instagram.com/p/CtGA6mkhRwu/), projector x picturehouse (the cathay dhoby), $20
 - \* DJ, Drip: [Orange Juice Asia (PH, Hiphop, Afrobeat, Amapiano)](https://www.instagram.com/p/CteMNQbtMJ_/), drip orchard, presale $30
+- \* DJ, Club Hell, [BTS in Hell](https://clubhell1706.peatix.com/), 113 telok ayer (mrt), gay club $30
 - \* DJ, Neil Conversion: [Katy Perry Night](https://www.instagram.com/p/Ctd6MqfSl5r/), 43 Neil Road, gay bar-club
 - DJ, Vertigo 26: [The Weatherman guest DJs (underground open format, deep techno/house to downtempo)](https://www.instagram.com/p/CtYDfGggqMG/), at mint museum museum of toys, listening bar
 - DJ, Black Horse: [Guest DJ Ya-Z (MY, Vina, Bounce, EDM) + kaeiz, highness](https://www.instagram.com/p/CtVjQgMSE7S/), ming arcade orchard L7, asian style club
