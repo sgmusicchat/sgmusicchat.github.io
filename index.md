@@ -415,7 +415,7 @@
 - DJ/Brunch, [Bao Booze and Beats ft Some Guy aka Deej Fabian(PH) by Butcher Boy Bar-Grill](https://www.instagram.com/p/CtdIUMjS9uH/), 31 Keong Saik Road, $35
 - DJ, [UNFILTERED presents: One Night In Seoul (kpop, DJs orfeus & brizzy)](https://www.instagram.com/p/CtJb0K9M3qo/), projector x picturehouse (the cathay dhoby), $30
 - DJ, 🏖 [EATMEPOPTART One Fine Day - Pool Party with weelikeme, kidg, hedger, fantastic dino, candice b](https://www.instagram.com/p/CtNqdIEBqS8/), One Farrer Hotel, [tics](https://empt-240623-ofh.peatix.com/) $25 
-- DJ, 🏖 [Manifest Pool Party - Djs BOONSHAO + MAKO + THE BEAT USAGI + DAN BURI](https://www.eventbrite.sg/e/639263322807)
+- DJ, 🏖 [Manifest Pool Party - Djs BOONSHAO + MAKO + THE BEAT USAGI + DAN BURI](https://www.eventbrite.sg/e/639263322807, 1-Altitude Coast Sentosa, $35
 - DJ, [AFROGROOVE Afro Club Night ft DJ Jag & DaBishop](https://peatix.com/event/3618169), blu jaz at bali ln (bugis), **$15**
 - DJ, [SIVILIAN AFFAIRS: Family Affairs ft David Jacobs, Anwar J, Miss Lil, Halal Sol, Zafirah, CJ (underground house/techno)](https://www.eventbrite.com/e/657388575927), tuff club 138 robinson rd cbd, $32
 - DJ, HQ: [BBandit (techno), Muto & Daryl Knows](https://www.eventbrite.com/e/642863280377), headquarters club 66A boat quay, $36
