@@ -1,1 +1,14 @@
-
+# 24-Jun - Pink Dot
+- [RUFFEDGE ft  DJ Uno (MY)](www.sistic.com.sg/events/ruffedge0623), theatre at mediacorp one-north, $98
+- [DATO NASH](https://ticketmaster.sg/activity/detail/23_datonash), drama centre theatre (national library bugis), $100
+- [Pauline Oliveros, Caroline Shaw, Julius Eastman, alex paxton, benjamin britten (avant music, exp classical) at weird aftertaste: Pink Fest Yeah!)](https://pinkfest.sg/events/weird-aftertaste-7-pink-fest-edition/), slap dance studio 144 Robinson Road, $25
+- Mando Gig: [北緯一度° 首場音樂會 - LINGBRANDON, Shelby Wang 王曉敏 , Sherman Zhuo 卓振声, OHMYMEITING](https://sg.bookmyshow.com/e/1DEGREEO), GR.iD Dhoby Ghaut/Selegie Mall L5, $25
+- Hardcore/Metal Gig: [Kung-fu Festival: New Blood - 2DK, xdesterx, Mystique, Wreckonize](https://www.instagram.com/p/CtlfiIbO8QS/), Eastside, dm
+- Rock/Indie/Ska Mega Gig: [Rock & Rolla! 10 Bands Gig](https://www.instagram.com/p/CrIsWCbh1lC/), revealed later, $22-$25 door
+- Rock/Pop Multi Gig: [Drop Dead Gorgeous IV: Space Time Boogie - Aarcade, Effort, Wonki Kongs & 3 more bands ](https://www.instagram.com/p/CsgSP9DhgAB/), 50 Tagore Lane (yck/lentor), ~ $22
+- Rock/DJ Multi Gig: [Bands Arcade 5 - Phfew, Minor Rebellion, Black Dogs, DJ Shan, DJ Xtro Boy](https://www.instagram.com/p/CsnzPwDS7JV/), festivo gallop 100 turf club (sixth ave), $20++ if form, $30 if doors i think
+- Indie/Electronic Gig: [Sample This! - Eugene Soh of Bakers in Space, Electronic: MINGZXC, Monozerra, Oftrt](https://www.instagram.com/p/Csqd_cEBSbw/), saylah 180 Paya Lebar Rd (macpherson), $20
+- Orchestra x Art - [Kelly Tang ft prodigy Mikkel Lee: Movements in Time - Artworks from the National Gallery x The Foundation](https://www.instagram.com/p/CtJM5RXPKRD/), esplanade, [tics](https://www.sistic.com.sg/events/time0623) $28 matinee $48 main
+- SMU CO - [GLOR1OU5 15th Yr Anniversaru《光辉十五》with The Purple Symphony](https://sg.bookmyshow.com/events/GLOR1OU5), SCO Concert Hall shenton way, **$15**
+- Tanglin SO - [Tchaikovsky Symphony No. 5 + Sibelius Finlandia & Herbert Cello Concerto](https://www.eventbrite.com/e/575455993367), School of the Arts Dhoby, **$10**
+- [KTV for Singles](https://www.eventbrite.com/e/647884047627), Teo Heng@Suntec City, $20
