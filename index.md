@@ -406,8 +406,9 @@
 - Hero's Bar: [The Soul of Singapore ft Shak (soul, blues)](https://www.instagram.com/p/CtYTX6loX14/), 69 circular rd boat quay
 - `BEERFEST ASIA`: [Welcome to the Machine (pink floyd tribute band) plays](https://www.instagram.com/p/CtNVEe5yoZr/), national stadium outdoor arena, $32-$38 
 -  `BEERFEST ASIA`: [Super Sonic, The Midnight Suns, DJ Nicole, DJ Ultra Vibrance ](https://www.beerfestasia.com/#), national stadium kallang outdoor area, ~$32
-
-
+ 
+&nbsp; 
+ 
 - DJ/Live Gig, [LAST SATURDAYS x BUNKER BUNKER - Sabrina's Big Day ft TENGY, Hello Mec - DJs James Selva, Hello Mec, (sho)&tell, d__scribe & HZQ, residents HBN & Haili](https://www.instagram.com/p/CtamsugSOfh/), Bisoux at GR.iD Dhoby/Selegie Mall, [tics](https://www.eventbrite.sg/e/655738149457) $30
 - DJ Mega Rave, [Under The Bridge: The Beast Awakens - 20+ DJs, live-art & installations -  Make-a-Wish charity fundraiser],  later disclosed city centre indoor / outdoor location,  [GA tics](https://utbthebeastawakens.peatix.com/view) $65
 - DJ/Bunch, [Groovetop Disco Brunch at Mandala Club - Djs Stalvart John of Dynamite Disco Club, Taaka, Joshua P](https://www.instagram.com/p/CteN6ugSwZo/), Mandala member's club, [tics](https://gt-discobrunch.peatix.com/) $35 but free for member's club
