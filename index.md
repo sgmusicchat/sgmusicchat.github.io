@@ -1,4 +1,6 @@
-BONUS 24 JUNE - <a name="link">link</a>
+BONUS 24 JUNE
+
+<a name="link">link</a>
 
 # 9-Jun Fri 
 - [Shallow Levée 淺堤 (TW indie pop-rock band)](https://instagram.com/p/CsRDFGWvzEO/), lion studios 115b commonwealth drive, $89
@@ -426,6 +428,8 @@ BONUS 24 JUNE - <a name="link">link</a>
 - DJ, Potato Head: [Stephen Day (house/tech nite)](https://www.instagram.com/p/CstThAvNYYq/), 36 Keong Saik Rd, bar bistro
 - DJ, Offtrack: [Sivilian Affairs: Sivanesh, Miss Lil](https://www.instagram.com/p/CsacFnYy9Av/), beside hong lim park, music gastro bar
 - DJ, Ce La Vi: [SLASSY ft Shagrilla Drag + DJs Amber H, Emma SS, Shigeki, Leonard T](https://celavisingaporeslassy24jun.peatix.com/), marina bay sands hotel tower, $38
+ 
+&nbsp; 
 
 Pink Dot Specific
 - DJ, 🏖[HYPER - BEACHBALL PINK WATERPARK at Adventure Cove Waterpark Sentosa ft Djs Bryan (ID), Preeda (TH), Dani Toro (ESP), Shaun (SG)](https://hyper.yapsody.com/), Resorts World Sentosa water theme park at 10pm, from $98
@@ -437,6 +441,8 @@ Pink Dot Specific
 - `Drag`: [Riot Drag! This is Not a Protest (for all who are not allowed to go pinkdot)](https://230624riotcumbb.peatix.com/), hard rock cafe orchard, left $50 includes access to Baby Boy Party above\
 - `Comedy`: [COMEDY NIGHT AT THE PROJECTOR - pinkdot edition](https://theprojector.sg/films-and-events/comedy-night-at-the-projector-jun-2023/), the projector picturehouse (the cathay dhoby), $25
 
+&nbsp; 
+
 EVENTS:
 - Esplanade `Multidisciplinary Poetry, music, theatre`: [Between Ground and Sky, exploring Shirley Geok-lin Lim & Tan Tiag Yi ](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/exchange/between-ground-and-sky), **free**
 - Esplanade `Theatre Film`: [Arthur Miller's The Crucible](https://www.esplanade.com/whats-on/festivals-and-series/collaborations/national-theatre-live/the-crucible), $19
@@ -445,8 +451,7 @@ EVENTS:
 - `Magic`: [Drawing Room Deceptions +2023](https://www.eventbrite.com/e/642041803317), crane arab street, $58
 - `Improv Theatre` [FIRE & LAUGTER by Shifting Stage](https://www.eventbrite.com/e/642887101627), aliwal arts centre (nicoll highway), $22
 
-
-
+ &nbsp; 
  
 # Ongoing maybe not music
 - `Till 25 June` [Gastrobeats](https://www.instagram.com/p/CsplOVYssy6/) and iLight Singapore, **free**
