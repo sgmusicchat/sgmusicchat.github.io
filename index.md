@@ -1,5 +1,7 @@
 16 June Update: More \* new/updated gigs 
 
+## <a name="bonus">BONUS 24 JUNE</a>
+
 # 9-Jun Fri 
 - [Shallow Levée 淺堤 (TW indie pop-rock band)](https://instagram.com/p/CsRDFGWvzEO/), lion studios 115b commonwealth drive, $89
 - Esplanade: [The Nature of Strings - pipa & harp by gildon choo & charmaine teo - day 1](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/exchange/the-nature-of-strings), **free**
@@ -379,6 +381,74 @@
 
 # 23-Jun Fri - Bonus for readers
 - DJ, [PEGGY GOU](https://www.instagram.com/p/Cs0EsVcSxpn/), marquee marina bay sands, left [$100 doors](https://marqueesingapore.com/event/marquee-presents-don-julio-1942-official-launch-party-with-peggy-gou/)
+
+
+# 24-Jun - [PINK Dot](#bonus)
+- [RUFFEDGE ft  DJ Uno (MY)](www.sistic.com.sg/events/ruffedge0623), theatre at mediacorp one-north, $98
+- [DATO NASH](https://ticketmaster.sg/activity/detail/23_datonash), drama centre theatre (national library bugis), $100
+- [Pauline Oliveros, Caroline Shaw, Julius Eastman, alex paxton, benjamin britten (avant music, exp classical) at weird aftertaste: Pink Fest Yeah!)](https://pinkfest.sg/events/weird-aftertaste-7-pink-fest-edition/), slap dance studio 144 Robinson Road, $25
+- Mando Gig: [北緯一度° 首場音樂會 - LINGBRANDON, Shelby Wang 王曉敏 , Sherman Zhuo 卓振声, OHMYMEITING](https://sg.bookmyshow.com/e/1DEGREEO), GR.iD Dhoby Ghaut/Selegie Mall L5, $25
+- Hardcore/Metal Gig: [Kung-fu Festival: New Blood - 2DK, xdesterx, Mystique, Wreckonize](https://www.instagram.com/p/CtlfiIbO8QS/), Eastside, dm
+- Rock/Indie/Ska Mega Gig: [Rock & Rolla! 10 Bands Gig](https://www.instagram.com/p/CrIsWCbh1lC/), revealed later, $22-$25 door
+- Rock/Pop Multi Gig: [Drop Dead Gorgeous IV: Space Time Boogie - Aarcade, Effort, Wonki Kongs & 3 more bands ](https://www.instagram.com/p/CsgSP9DhgAB/), 50 Tagore Lane (yck/lentor), ~ $22
+- Rock/DJ Multi Gig: [Bands Arcade 5 - Phfew, Minor Rebellion, Black Dogs, DJ Shan, DJ Xtro Boy](https://www.instagram.com/p/CsnzPwDS7JV/), festivo gallop 100 turf club (sixth ave), $20++ if form, $30 if doors i think
+- Indie/Electronic Gig: [Sample This! - Eugene Soh of Bakers in Space, Electronic: MINGZXC, Monozerra, Oftrt](https://www.instagram.com/p/Csqd_cEBSbw/), saylah 180 Paya Lebar Rd (macpherson), $20
+- Esplanade: [KIKI (TH synth pop)](https://www.esplanade.com/whats-on/festivals-and-series/free-programmes/2023/rocking-the-region/kiki),  outdoor, **free**
+- Esplanade: [POLKA WARS (IDN indie rock/post-punk)](https://www.esplanade.com/whats-on/festivals-and-series/free-programmes/2023/rocking-the-region/polka-wars), outdoor, **free**
+- Orchestra x National Gallery - [Kelly Tang ft prodigy Mikkel Lee: Movements in Time - Artworks from the National Gallery x The Foundation](https://www.instagram.com/p/CtJM5RXPKRD/), esplanade, [tics](https://www.sistic.com.sg/events/time0623) $28 matinee $48 main
+- SMU CO - [GLOR1OU5 15th Yr Anniversaru《光辉十五》with The Purple Symphony](https://sg.bookmyshow.com/events/GLOR1OU5), SCO Concert Hall shenton way, **$15**
+- Tanglin SO - [Tchaikovsky Symphony No. 5 + Sibelius Finlandia & Herbert Cello Concerto](https://www.eventbrite.com/e/575455993367), School of the Arts Dhoby, **$10**
+- Jazz Loft: [Sedap Pedas - Soul n’ Silk (jazz loft anniversary)](https://www.instagram.com/p/Cr2dFy6uWtm/), blu jaz L3 at bali ln (bugis), [tics](https://www.eventbrite.com/e/631310014247) $22
+- Cool Cats Jazz: [Beautiful Bossanova with Natasha Oong](https://feverup.com/m/129097), 32 Beach Rd JW Mariott South Beach, $30
+- `KTV`: [KTV for Singles](https://www.eventbrite.com/e/647884047627), Teo Heng@Suntec City, $20
+- `Comedy`: [Best of Stand Up Comedy: British Invasion ft Harriet Kemsley, Bebn Norruis, Sam See, Matt Chalmers](https://ticketmaster.sg/activity/detail/23_bestofbrit2), esplanade waterfront theatre, $58
+-  `Piano/Chamber`: [M&G Charity Concert- Fundraiser for Singapore Children's Society](https://peatix.com/event/3613735), 217 queen st (bras basah), $10-$30
+- iCHi izakaya music bar: [Dance Dance Baby](https://www.instagram.com/p/CtLyrqEScr1/), clarke quay
+- Blackbird: [Cloud 9 (70s-80s rock)](https://www.instagram.com/p/Ctl6YrSyjr3/), gillman barracks live music bar
+- Hero's Bar: [The Soul of Singapore ft Shak (soul, blues)](https://www.instagram.com/p/CtYTX6loX14/), 69 circular rd boat quay
+- `BEERFEST ASIA`: [Welcome to the Machine (pink floyd tribute band) plays](https://www.instagram.com/p/CtNVEe5yoZr/), national stadium outdoor arena, $32-$38 
+-  `BEERFEST ASIA`: [Super Sonic, The Midnight Suns, DJ Nicole, DJ Ultra Vibrance ](https://www.beerfestasia.com/#), national stadium kallang outdoor area, ~$32
+
+
+- DJ/Live Gig, [LAST SATURDAYS x BUNKER BUNKER - Sabrina's Big Day ft TENGY, Hello Mec - DJs James Selva, Hello Mec, (sho)&tell, d__scribe & HZQ, residents HBN & Haili](https://www.instagram.com/p/CtamsugSOfh/), Bisoux at GR.iD Dhoby/Selegie Mall, [tics](https://www.eventbrite.sg/e/655738149457) $30
+- DJ Mega Rave, [Under The Bridge: The Beast Awakens - 20+ DJs, live-art & installations -  Make-a-Wish charity fundraiser],  later disclosed city centre indoor / outdoor location,  [GA tics](https://utbthebeastawakens.peatix.com/view) $65
+- DJ/Bunch, [Groovetop Disco Brunch at Mandala Club - Djs Stalvart John of Dynamite Disco Club, Taaka, Joshua P](https://www.instagram.com/p/CteN6ugSwZo/), Mandala member's club, [tics](https://gt-discobrunch.peatix.com/) $35 but free for member's club
+- DJ/Brunch, [Bao Booze and Beats ft Some Guy aka Deej Fabian(PH) by Butcher Boy Bar-Grill](https://www.instagram.com/p/CtdIUMjS9uH/), 31 Keong Saik Road, $35
+- DJ, [UNFILTERED presents: One Night In Seoul (kpop, DJs orfeus & brizzy)](https://www.instagram.com/p/CtJb0K9M3qo/), projector x picturehouse (the cathay dhoby), $30
+- DJ, 🏖 [EATMEPOPTART One Fine Day - Pool Party with weelikeme, kidg, hedger, fantastic dino, candice b](https://www.instagram.com/p/CtNqdIEBqS8/), One Farrer Hotel, [tics](https://empt-240623-ofh.peatix.com/) $25 
+- DJ, 🏖 [Manifest Pool Party - Djs BOONSHAO + MAKO + THE BEAT USAGI + DAN BURI](https://www.eventbrite.sg/e/639263322807)
+- DJ, [AFROGROOVE Afro Club Night ft DJ Jag & DaBishop](https://peatix.com/event/3618169), blu jaz at bali ln (bugis), **$15**
+- DJ, [SIVILIAN AFFAIRS: Family Affairs ft David Jacobs, Anwar J, Miss Lil, Halal Sol, Zafirah, CJ (underground house/techno)](https://www.eventbrite.com/e/657388575927), tuff club 138 robinson rd cbd, $32
+- DJ, HQ: [BBandit (techno), Muto & Daryl Knows](https://www.eventbrite.com/e/642863280377), headquarters club 66A boat quay, $36
+- DJ, PRISM: [7 Sins: Wrath - Fallen Angels ](https://www.eventbrite.com/e/661005885397), prism club marina square (esplanade)
+- DJ, Majesty Chen: [Korean DJs](https://www.instagram.com/p/CtMKcG_uOfS/), 138 robinson rd oxley tower
+- DJ, Yang Club: [ReggaeTonight - ALLAY (IDN), ollie san, snickaz, kelibre](https://www.instagram.com/p/CtYEMxoqdI6/), yang clarke quay, $20
+- DJ, Zouk: [DJ Blink (MY), Caden, Jeremy Boon](https://www.instagram.com/p/CtGEQe5SSTM/), zouk clarke quay
+- DJ, Moonstone: [Jenn Chunes (house, disco, garage, r&b, afro)](https://www.instagram.com/p/CtokUHUyu0s/), 103 Amoy St, bar-bistro
+- DJ, Potato Head: [Stephen Day (house/tech nite)](https://www.instagram.com/p/CstThAvNYYq/), 36 Keong Saik Rd, bar bistro
+- DJ, Offtrack: [Sivilian Affairs: Sivanesh, Miss Lil](https://www.instagram.com/p/CsacFnYy9Av/), beside hong lim park, music gastro bar
+- DJ, Ce La Vi: [SLASSY ft Shagrilla Drag + DJs Amber H, Emma SS, Shigeki, Leonard T](https://celavisingaporeslassy24jun.peatix.com/), marina bay sands hotel tower, $38
+
+Pink Dot Specific
+- DJ, 🏖[HYPER - BEACHBALL PINK WATERPARK at Adventure Cove Waterpark Sentosa ft Djs Bryan (ID), Preeda (TH), Dani Toro (ESP), Shaun (SG)](https://hyper.yapsody.com/), Resorts World Sentosa water theme park at 10pm, from $98
+- DJ, Club Hell: [SLUMBER PARTY in HELL](https://peatix.com/event/3611425), 113 telok ayer, $30
+- DJ, [CANDYSHOP x sweatshop: Pink Party (lgbt-friendly) ft. djs, gogo boys, drag ](https://www.instagram.com/p/CtTr__uvde8/), Drip Club 100 Orchard Rd, $60 soldout tables open
+- DJ, [EPI x Rebel - The Pride Party Love Wins ft dj amprsnd](https://www.instagram.com/p/Ctc7A7eP_mW/), 47 Neil Road, cocktail bar/bistro
+- DJ, [BABY BOY PARTY - Pink Diva Era Pinkdot afterparty (rnb hiphop vibe) ft. lipsync smackdown finals](https://www.instagram.com/p/Cs5MR4IyWDo/), hard rock cafe orchard, $25 doors
+- `Femme`: [LesPark Afterparty](https://www.eventbrite.com/e/639241678067), the spot at marina one 5 straits view, $86
+- `Drag`: [Riot Drag! This is Not a Protest (for all who are not allowed to go pinkdot)](https://230624riotcumbb.peatix.com/), hard rock cafe orchard, left $50 includes access to Baby Boy Party above\
+- `Comedy`: [COMEDY NIGHT AT THE PROJECTOR - pinkdot edition](https://theprojector.sg/films-and-events/comedy-night-at-the-projector-jun-2023/), the projector picturehouse (the cathay dhoby), $25
+
+EVENTS:
+- Esplanade `Multidisciplinary Poetry, music, theatre`: [Between Ground and Sky, exploring Shirley Geok-lin Lim & Tan Tiag Yi ](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/exchange/between-ground-and-sky), **free**
+- Esplanade `Theatre Film`: [Arthur Miller's The Crucible](https://www.esplanade.com/whats-on/festivals-and-series/collaborations/national-theatre-live/the-crucible), $19
+- Esplanade `Theatre Film`: [Chekov's The Seagull  ft Emilia Clarke of Game of Thrones (dir.Jamie Lloyd adap. Anya Reiss )](https://www.esplanade.com/whats-on/festivals-and-series/collaborations/national-theatre-live/the-seagull), ,  $19
+- `Indian Dance`: [IPAC 2023: Skanda Rasam ft Mohanapriyan Thavarajah](https://www.esplanade.com/whats-on/festivals-and-series/series/2023/raga/ipac-2023-skanda-rasam), esplanade, $22
+- `Magic`: [Drawing Room Deceptions +2023](https://www.eventbrite.com/e/642041803317), crane arab street, $58
+- `Improv Theatre` [FIRE & LAUGTER by Shifting Stage](https://www.eventbrite.com/e/642887101627), aliwal arts centre (nicoll highway), $22
+
+
+
  
 # Ongoing maybe not music
 - `Till 25 June` [Gastrobeats](https://www.instagram.com/p/CsplOVYssy6/) and iLight Singapore, **free**
