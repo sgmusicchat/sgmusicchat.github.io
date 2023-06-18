@@ -1,6 +1,4 @@
-16 June Update: More \* new/updated gigs 
-
-## BONUS 24 JUNE - <a name="link">link</a>
+BONUS 24 JUNE - <a name="link">link</a>
 
 # 9-Jun Fri 
 - [Shallow Levée 淺堤 (TW indie pop-rock band)](https://instagram.com/p/CsRDFGWvzEO/), lion studios 115b commonwealth drive, $89
