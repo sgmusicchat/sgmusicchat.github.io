@@ -362,7 +362,7 @@
 &nbsp; 
  
 # 22-Jun Thu
-- \* [Kruelty (black metal hardcore), Krusty (MY), Deceased & KillonSight](https://instagram.com/p/Cr4qf38hOfu/), new venue: Kamal Arts Gallery (paya lebar geylang serai cc), $35 
+- \* [Kruelty (black metal hardcore), Krusty (MY), Deceased & KillonSight](https://instagram.com/p/Ctko5thBwKl/), new venue: Kamal Arts Gallery (paya lebar geylang serai cc), $35 
 - Esplanade `Multidisciplinary Poetry, music, theatre`: [Between Ground and Sky, exploring Shirley Geok-lin Lim & Tan Tiag Yi ](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/exchange/between-ground-and-sky), **free**
 - \* [Scruffy Murphy's Irish Pub: Paul Hutton](https://www.instagram.com/p/CtvGBPHq_Vr/)
 , 32 South Buona Vista Rd
