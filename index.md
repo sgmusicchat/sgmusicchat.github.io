@@ -461,7 +461,7 @@
 &nbsp; 
 
 #### Pink Dot Specific
-- PINKDOT: [Jean Seizure, Inch Chua, m1ldl1fe, PreetiPls, shot day (cayes hong x levi mak), bottom to the top](https://www.instagram.com/p/CtnMb5OSfM8/), hong lim park, **free** but sorry foreigners - `In accordance with Hong Lim Park Speakers’ Corner regulations, only Singapore citizens and Permanent Residents are allowed to enter the barricaded part of the Event Space.`
+- \* PINKDOT: [Jean Seizure, Inch Chua, m1ldl1fe, PreetiPls, shot day (cayes hong x levi mak), bottom to the top](https://www.instagram.com/p/CtnMb5OSfM8/), hong lim park, **free** but sorry foreigners - `In accordance with Hong Lim Park Speakers’ Corner regulations, only Singapore citizens and Permanent Residents are allowed to enter the barricaded part of the Event Space.`
 - DJ, 🏖[HYPER - BEACHBALL PINK WATERPARK at Adventure Cove Waterpark Sentosa ft Djs Bryan (ID), Preeda (TH), Dani Toro (ESP), Shaun (SG)](https://hyper.yapsody.com/), Resorts World Sentosa water theme park at 10pm, from $98
 - \* DJ & Drag Party, [Two Queens Asia: PINK ft DJ Fasha & Candice](https://www.instagram.com/p/CsfeDapS4Ds/), club iki at ikigai riverwalk (clarke quay), $28 doors
 - \* DJ, MILK: [Viva La Vida Pink Dot Afterparty](https://www.instagram.com/p/CtwOkSaSH_a/?hl=en), 530 North Bridge Rd Bugis Point L3
