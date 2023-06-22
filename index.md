@@ -444,7 +444,7 @@
 - DJ, [UNFILTERED presents: One Night In Seoul (kpop, DJs orfeus & brizzy)](https://www.instagram.com/p/CtJb0K9M3qo/), projector x picturehouse (the cathay dhoby), $30
 - DJ, 🏖 [EATMEPOPTART One Fine Day - Pool Party with weelikeme, kidg, hedger, fantastic dino, candice b](https://www.instagram.com/p/CtNqdIEBqS8/), One Farrer Hotel, [tics](https://empt-240623-ofh.peatix.com/) $25 
 - DJ, 🏖 [Manifest Pool Party - Djs BOONSHAO + MAKO + THE BEAT USAGI + DAN BURI](https://www.eventbrite.sg/e/639263322807), 1-Altitude Coast Sentosa, $35
-- DJ, [AFROGROOVE Afro Club Night ft DJ Jag & DaBishop at Blu Jaz Neon Lounge](https://www.instagram.com/p/CthD4-Oy48M/), blu jaz at bali ln (bugis), [tics]((https://peatix.com/event/3618169)**$15**
+- DJ, [AFROGROOVE Afro Club Night ft DJ Jag & DaBishop at Blu Jaz Neon Lounge](https://www.instagram.com/p/CthD4-Oy48M/), blu jaz at bali ln (bugis), [tics](https://peatix.com/event/3618169), **$15**
 - \* DJ, [nothing fancy bar x secret pals - DJ Some Guy (PH acid jazz, downtempo rnb, soul) ](https://www.instagram.com/p/CtnYpnlB6tZ/), 11 hamilton rd wine bar 
 - DJ, [SIVILIAN AFFAIRS: Family Affairs ft David Jacobs, Anwar J, Miss Lil, Halal Sol, Zafirah, CJ (underground house/techno)](https://www.eventbrite.com/e/657388575927), tuff club 138 robinson rd cbd, $32
 - DJ, Luxe: [BLVD Soundscape ft DJ Pin, belle, ez rawr, jules, gigi, pooties, cheri, kilogramz](https://www.instagram.com/p/CtthGopSGyH/), luxe club pan pacific hotel (esplanade), $25
