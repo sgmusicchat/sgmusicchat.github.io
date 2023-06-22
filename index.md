@@ -1,4 +1,4 @@
-## 23rd and 24 Jun ready [BONUS below](#link)
+## 23 and 24 Jun FRI SAT ready [BONUS below](#bonus)
 
 # 9-Jun Fri 
 - [Shallow Levée 淺堤 (TW indie pop-rock band)](https://instagram.com/p/CsRDFGWvzEO/), lion studios 115b commonwealth drive, $89
@@ -392,7 +392,7 @@
 - `Exhibit 13-18 jun`: Esplanade: [Transit 步: The Installation](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/exchange/transit--installation), **free**
 - `Exhibit till 18 jun` [“Conundrum Chamber”, by three artists: BODHI, Jayalakshmi, and Yang Han Wen](https://instagram.com/p/CtLfg6PSiyM/)
 
-## 23-Jun Fri - Bonus for readers
+## 23-Jun Fri - <a name="bonus"></a> Bonus for readers
 - [NMIXX](https://ticketmaster.sg/activity/detail/23_nmixx), the star theatre at star vista (buona), $148
 - Metal Gig: [Ideas of Evil - Anatomia (JPN), Faceless Burial (AUS), Marijannah & Doldrey](https://www.instagram.com/p/Cq8iFpxhm3o/), dm here, $35 soldout
 - Beerfest Asia: `Tribute Day`[Peepshow/Muse-GnR, Killer - Queen Tribute, The Vibes, AC/DC Experience, Rock Revival, Good Vibrations - DJs Sivanesh, Tony Tay, Yu Jin, Jasmine Red, Doctor Mix](https://www.beerfestasia.com/programme), national stadium outdoor, $30+
