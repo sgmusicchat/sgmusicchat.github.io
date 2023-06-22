@@ -437,7 +437,7 @@
  - DJ, `BEERFEST ASIA`:  DJ Brendon P, PRAV, DJ Nicole, DJ Ultra Vibrance, see above
  - [LAST SATURDAYS x Bunker Bunker: TENGY, Hello Mec + DJs James Selva, (sho)&tell,  d_scribe & HZQ, HBN & Haili - Sabrina's Big Day Out](https://www.instagram.com/p/CtamsugSOfh/), Bisoux at GR.iD Dhoby/Selegie Mall, [tics](https://www.eventbrite.sg/e/655738149457) $30
 
-&nbsp;  =
+&nbsp;  
 #### 24J: Rave/Parties/Selectors
 - DJ Mega Rave, [Under The Bridge: The Beast Awakens - 20+ DJs, live-art & installations -  Make-a-Wish charity fundraiser](https://www.instagram.com/underthebridgeparties/),  later disclosed city centre indoor / outdoor location,  [GA tics](https://utbthebeastawakens.peatix.com/view) $65
 - DJ/Bunch, [Groovetop Disco Brunch at Mandala Club - Djs Stalvart John of Dynamite Disco Club, Taaka, Joshua P](https://www.instagram.com/p/CteN6ugSwZo/), Mandala member's club, [tics](https://gt-discobrunch.peatix.com/) $35 but free for member's club
