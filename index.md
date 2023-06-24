@@ -18,7 +18,7 @@ Big Names:
 - J Balvin 28 Jul
 - The Strokes 2 Aug
 - Mr Big 4-5 Aug
-- David Foster & Co like Michael Bolton 8 Aug
+- David Foster & Co, Michael Bolton 8 Aug
 - Sundown: R3HAB, 萧敬腾, Namewee, Kim Lee 12-13 Aug
 - Dean Lewis 18 Aug
 - Ronan Keating 20 Aug
