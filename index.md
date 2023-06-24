@@ -1,6 +1,6 @@
 ## The list is back in reddit for this week
 
-https://www.reddit.com/r/singaporemusicchat/comments/14gjbay/megalist_sg_gigs_raves_concerts_hari_raya_haji_23/
+<https://www.reddit.com/r/singaporemusicchat/comments/14gjbay/megalist_sg_gigs_raves_concerts_hari_raya_haji_23/>
 
 ## Working on a General Concert List for big stars
 
@@ -11,7 +11,7 @@ Big Names:
 - 蔡徐坤 KUN 15 Jul
 - Vertical Horizon 16 Jul 
 - Daniel Caesar 17 Jul
-- The 1975 18-19 Jul, 
+- The 1975, 18-19 Jul, 
 - Peach Tree Rascals 19 Jul
 - Lewis Capaldi 25 Jul
 - Sabrina Carpenter 27 Jul
