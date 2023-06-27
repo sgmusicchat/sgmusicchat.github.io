@@ -16,7 +16,7 @@ Upcoming Big Names:
 - The Boyz 20 Jul
 - GARNiDELiA 23 Jul
 - Lewis Capaldi 25 Jul
-- Ellie Golding 26 Jul
+- Ellie Goulding 26 Jul
 - Sabrina Carpenter 27 Jul
 - J Balvin 28 Jul
 - FKJ 1 Aug
