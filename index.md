@@ -15,19 +15,22 @@ Upcoming Big Names:
 - Peach Tree Rascals 19 Jul
 - The Boyz 20 Jul
 - GARNiDELiA 23 Jul
-- Lewis Capaldi 25 Jul
-- Ellie Goulding 26 Jul
+- ~~Lewis Capaldi 25 Jul~~
+- Ellie Golding 26 Jul
 - Sabrina Carpenter 27 Jul
 - J Balvin 28 Jul
 - FKJ 1 Aug
 - The Strokes 2 Aug
 - Mr Big 4-5 Aug
-- David Foster ft Michael Bolton 8 Aug
-- Sundown: R3HAB, 萧敬腾, Namewee 12-13 Aug
+- David Foster, Bolton, Nurhaliza 8 Aug
+- Fest: R3HAB, 萧敬腾, Namewee 12-13 Aug
+- Vacations 12 Aug
 - Bruno Major 17 Aug
 - Dean Lewis 18 Aug
+- Ricky Hsiao 蕭煌奇 19 Aug
 - Ronan Keating 20 Aug
 - Taeyeon 20 Aug
+- 蔡琴 Tsai Chin 20 Aug
 - UMI 26 Aug
 - Covet 27 Aug
 - Wormrot 1 Sep
@@ -37,10 +40,14 @@ Upcoming Big Names:
 - Rupaul Drag Race 7 Sep
 - Kit Chan 8-10 Sep
 - ATEEZ 9 Sep
+- BOL4 10 Sep
 - F1: Jackson Wang/NIKI/Rich Brian 15 Sep
 - F1: Post Malone 16 Sep
 - F1: Robbie Williams 17 Sep
 - 李聖傑 Sam Lee 17 Sep
+- P1Harmony 17 Sep
+- Rumour: 5566, 30 Sep
+- A1 7 Oct
 - Charlie Puth 10 Oct
 - Yuvan Shankar Raja 14 Oct
 - Against The Current 17 Oct
@@ -52,6 +59,7 @@ Upcoming Big Names:
 - ONE OK ROCK 18 Dec
 - Coldplay 23-31 Jan
 - Taylor Swift 2-9 Mar
+- Rumour: Ed Sheeran 13 Jun
 
 Main: https://t.me/sgconcerts
 
