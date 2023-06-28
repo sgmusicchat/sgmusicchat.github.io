@@ -23,8 +23,11 @@ Upcoming Big Names:
 - The Strokes 2 Aug
 - Mr Big 4-5 Aug
 - David Foster, Bolton, Nurhaliza 8 Aug
+- Valley 10 Aug
 - Fest: R3HAB, 萧敬腾, Namewee 12-13 Aug
 - Vacations 12 Aug
+- iKON 12 Aug
+- Lany 15 Aug
 - Bruno Major 17 Aug
 - Dean Lewis 18 Aug
 - Ricky Hsiao 蕭煌奇 19 Aug
