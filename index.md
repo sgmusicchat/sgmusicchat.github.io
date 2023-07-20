@@ -43,6 +43,8 @@
 - DJ, [MILK x KANANI - HIGHLIFE #AFROBEATS](https://www.eventbrite.sg/e/676558112527), Milk Club at 530 North Bridge Rd (bugis), $30
 - DJ, Zouk: [100% bulletproof with ghetto & eswag (Hardstyle, Hip-hop, Big room)](https://zoukclub.com/100-bulletproof-presents-ghetto-with-big-m-3/), zouk clarke quay, $45
 - DJ, Marquee: [A$AP FERG](https://marqueesingapore.com/event/marquee-presents-asap-ferg/), marquee marina bay sands, $90
+- DJ, [WastedSG’s Come on Barbie Lets go Party ft YinYang, Electron, Caitlyn, Roy of Canvas (hiphop pop party anthems)](https://www.instagram.com/p/Cu1kJ2Rr2Jf/), club iki at Ikigai izakaya riverwalk (clarke quay), $35
+
 
 # 22 Jul 2023, Sat
 - [MIYAVI](https://www.marinabaysands.com/entertainment/shows/miyavi-concert.html), marina bay sands Exhibition Hall D, $88
@@ -94,8 +96,8 @@
 - DJ, Drip: [Worldwide presents Brett Allen](https://www.eventbrite.sg/e/678728895397), drip club 100 Orchard Rd Concorde Hotel, $27
 - DJ, [DESI THUMKA at Magic Carpet Lounge (Bollywood, Bhangra, Punjabi)](https://www.eventbrite.sg/e/665192577907), 7500E Beach Rd, $37
 - DJ, Marquee: [Soundclash - (free for tertiary students)](https://marqueesingapore.com/event/soundclash-16/), marquee marina bay sands, $20
-- DJ, [WastedSG’s Come on Barbie Lets go Party ft YinYang, Electron, Caitlyn, Roy of Canvas (hiphop pop party anthems)](https://www.instagram.com/p/Cu1kJ2Rr2Jf/), club iki at Ikigai izakaya riverwalk (clarke quay), $35
 
+- 
 # 23 Jul 2023, Sun
 - [GARNiDELiA](https://ticketmaster.sg/activity/detail/23_garnidelia), Singapore Expo Hall 5, $108
 - [Anime Festival Asia Creators Super Fest Day 2](https://ticketmaster.sg/activity/detail/23_afacsf2023), Singapore Expo Hall 5, $19
