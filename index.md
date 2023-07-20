@@ -63,7 +63,7 @@
 - `Indian Music-Dance`: [Niranjan Pandian's My Identity - Beyond Artistry ( என் அடையாளம்)  with Bhaskar Arts Academy](https://myidentity2023.peatix.com/), aliwal arts centre, $28
 - `Indian Dance`: [Nava Nartanam – 9 emotions of dance](https://esplanade.com/whats-on/festivals-and-series/series/2023/raga/nava-nartanam-9-emotions-of-dance), ESPLANADE, $24
 - [SMU Symphonia - Grandioso IV: Once Upon A Dream](https://www.instagram.com/p/CtjUqKzhzSE/), singapore conference hall 7 shenton way, **$17**
-- `Chinese & Malay Trad Vocal/Poetry`: [Longing | 遥望 by Siong Leng Musical Association](https://www.sistic.com.sg/events/longing0723), Drama Centre Black box (bugis), $28
+- `Chinese & Malay Trad Vocal/Poetry`: [Longing 遥望 by Siong Leng Musical Association](https://www.sistic.com.sg/events/longing0723), Drama Centre Black box (bugis), $28
 - `Meditation`: [As Water Dances Through Us: Soundscape Meditation by Jean Reiki](https://soundscapemeditation.peatix.com/), 155 middle rd (objectifs gallery), **$15**
 - `Fundraiser` [NAMIBIA ACC (Amitofo Care Centre) CONCERT 纳米比亚ACC东南亚感恩汇演 ](https://www.sistic.com.sg/events/namibia0723), Kreta Ayer People's Theatre, $68
 - `Church Choral`:  [HOS Concert 2023 - Come, Let Us Sing ](https://www.sistic.com.sg/events/hos0723), newton life church, $30
