@@ -94,7 +94,7 @@
 - DJ, Drip: [Worldwide presents Brett Allen](https://www.eventbrite.sg/e/678728895397), drip club 100 Orchard Rd Concorde Hotel, $27
 - DJ, [DESI THUMKA at Magic Carpet Lounge (Bollywood, Bhangra, Punjabi)](https://www.eventbrite.sg/e/665192577907), 7500E Beach Rd, $37
 - DJ, Marquee: [Soundclash - (free for tertiary students)](https://marqueesingapore.com/event/soundclash-16/), marquee marina bay sands, $20
-
+- DJ, [WastedSG’s Come on Barbie Lets go Party ft YinYang, Electron, Caitlyn, Roy of Canvas (hiphop pop party anthems)](https://www.instagram.com/p/Cu1kJ2Rr2Jf/), club iki at Ikigai izakaya riverwalk (clarke quay), $35
 
 # 23 Jul 2023, Sun
 - [GARNiDELiA](https://ticketmaster.sg/activity/detail/23_garnidelia), Singapore Expo Hall 5, $108
