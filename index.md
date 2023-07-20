@@ -116,3 +116,4 @@
 - Blackbird: [Raw Earth Blues Jam ft. Kelly, Jack n Rai](https://www.instagram.com/p/CuyFi9gpreq/), Blackbird Music Bar at Gillman Barracks 8 Lock Rd
 - DJ, [The Weekend Hangout Vol 4. After Hours : Sunday Service at Lion Brewery - ft Tunes by KC (R&B, Latin)](https://eventbrite.com/e/680192202187), 39 Ann Siang Rd, **$16**
 - DJ, [Prism Nightclub: Sundiu Nights](https://eventbrite.sg/e/675388343717), prism club marina square  , **Free**
+- DJ, Potato Head: [In The Wild (Pearl)](https://www.instagram.com/p/CurOscmSCxH/), potato head rooftop
