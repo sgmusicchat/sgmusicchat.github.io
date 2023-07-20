@@ -59,6 +59,7 @@
 - Esplanade Jazz: [Nadine Adrianna Trio (IDN) ft. Barry Likumahuwa, Sandy Winarta](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/nadine-adrianna-trio-feat-barry-likumahuwa-and-sandy-winarta), **free**
 - Esplanade Jazz: [Stage Jam w all above](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/stage-jam), outdoor, **free**
 - Jazz Loft: [Natasya Elvira (IDN) - Last Day](https://www.instagram.com/p/Cun029budlR/), blu jaz at bali ln (bugis), [tix 🔗](https://eventbrite.sg/e/658156573027), $22
+- Maduro Jazz: [An Evening of Jazz Treasures ft. Rachma Lim & Sarah-Kei Lauw ](https://www.eventbrite.com/e/675893143587),  Sofitel Singapore Sentosa, $65 drink credits
 - [Jankaar Beats 2023: A Journey on Musical Waves (ft Sivamani, Stephen Devassy, Naresh Iyer, Seethalakshmi, Steven Samuel Devassy (IN) )](https://esplanade.com/whats-on/2023/jankaar-beats-2023-a-journey-on-musical-waves), ESPLANADE, $50
 - `Indian Music-Dance`: [Niranjan Pandian's My Identity - Beyond Artistry ( என் அடையாளம்)  with Bhaskar Arts Academy](https://myidentity2023.peatix.com/), aliwal arts centre, $28
 - `Indian Dance`: [Nava Nartanam – 9 emotions of dance](https://esplanade.com/whats-on/festivals-and-series/series/2023/raga/nava-nartanam-9-emotions-of-dance), ESPLANADE, $24
@@ -71,6 +72,7 @@
 - `Standup Comedy` [Malaysian Invasion - Kavin Jay, Rizal van Geyzel, Kuah Jenhan, Phoon Chi Ho and Andrew Netto](https://ticketmaster.sg/activity/detail/23_myinvasion), Funan Wild Rice Theatre (ctiy hall), $39
 - `Canto Opera`: [A Lighter Side of History: Memoir of Woo Wai Fong and Introduction to Cantonese Opera](https://intro-to-opera.peatix.com/), national museum of singapore, $5 sold out
 - `Drag:` [RIOT! Hosted by Becca D'Bus](https://riot230722.peatix.com/), hard rock cafe orchard, $25
+- [Parliament: Rad Dad (retro rock, yacht rock, soft rock) - Toto, Journey, Phil Collins, Hall n oats](https://www.instagram.com/p/CujrIqEthZV/), 18 teck lim road
 
 &nbsp;
 
