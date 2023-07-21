@@ -1,18 +1,18 @@
 Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
-[21 Jul Fri](#21-Jul-Fri)
-[22 Jul Sat](#22-Jul-Sat)
-[23 Jul Sun](#23-Jul-Sun)
-[24 Jul Mon](#24-Jul-Mon)
-[25 Jul Tue](#25-Jul-Tue)
-[26 Jul Wed](#26-Jul-Wed)
-[27 Jul Thu](#27-Jul-Thu)
-[28 Jul Fri](#28-Jul-Fri)
-[29 Jul Sat](#29-Jul-Sat)
-[30 Jul Sun](#30-Jul-Sun)
-[01 Aug Mon](#01-Aug-Mon)
-[02 Aug Tue](#02-Aug-Tue)
-[Other Events](#Other-Events)
+- [21 Jul Fri](#21-Jul-Fri)
+- [22 Jul Sat](#22-Jul-Sat)
+- [23 Jul Sun](#23-Jul-Sun)
+- [24 Jul Mon](#24-Jul-Mon)
+- [25 Jul Tue](#25-Jul-Tue)
+- [26 Jul Wed](#26-Jul-Wed)
+- [27 Jul Thu](#27-Jul-Thu)
+- [28 Jul Fri](#28-Jul-Fri)
+- [29 Jul Sat](#29-Jul-Sat)
+- [30 Jul Sun](#30-Jul-Sun)
+- [01 Aug Mon](#01-Aug-Mon)
+- [02 Aug Tue](#02-Aug-Tue)
+- [Other Events](#Other-Events)
 
 # 21 Jul Fri
 - Marquee: [A$AP FERG](https://marqueesingapore.com/event/marquee-presents-asap-ferg/), marina bay sands, $90
