@@ -12,7 +12,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 - [30 Jul Sun](#30-Jul-Sun)
 - [31 Jul Mon](#31-Jul-Mon)
 - [01 Aug Tue](#01-Aug-Tue)
-- [02 Aug Wed](#01-Aug-Wed)
+- [02 Aug Wed](#02-Aug-Wed)
 - [Other Events](#Other-Events)
 
 # 21 Jul Fri
