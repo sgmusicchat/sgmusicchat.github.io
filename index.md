@@ -1,7 +1,18 @@
 Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
-[21 Jul](#21-Jul-Fri)
-
+[21 Jul Fri](#21-Jul-Fri)
+[22 Jul Sat](#22-Jul-Sat)
+[23 Jul Sun](#23-Jul-Sun)
+[24 Jul Mon](#24-Jul-Mon)
+[25 Jul Tue](#25-Jul-Tue)
+[26 Jul Wed](#26-Jul-Wed)
+[27 Jul Thu](#27-Jul-Thu)
+[28 Jul Fri](#28-Jul-Fri)
+[29 Jul Sat](#29-Jul-Sat)
+[30 Jul Sun](#30-Jul-Sun)
+[01 Aug Mon](#01-Aug-Mon)
+[02 Aug Tue](#02-Aug-Tue)
+[Other Events](#Other-Events)
 
 # 21 Jul Fri
 - Marquee: [A$AP FERG](https://marqueesingapore.com/event/marquee-presents-asap-ferg/), marina bay sands, $90
@@ -46,7 +57,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 - DJ, HQ: [ANTHONY PARASOLE, Dean Chew, Halal Sol (underground, deep house, techno)](https://instagram.com/p/Cu3Z0Bjy0UJ/), headquarters club 66A boat quay,$36
 
 
-# 22 Jul, Sat
+# 22 Jul Sat
 - [MIYAVI](https://www.marinabaysands.com/entertainment/shows/miyavi-concert.html), marina bay sands, $88
 - [Jacky Cheung 张学友 - Show 5/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
 - [Anxious (US Emo)](https://dividedwefallzine.bigcartel.com/product/anxious-live-in-singapore), Scape Orchard L3, $58
@@ -108,7 +119,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
  
 
-# 23 Jul, Sun
+# 23 Jul Sun
 - [GARNiDELiA](https://ticketmaster.sg/activity/detail/23_garnidelia), Singapore Expo Hall 5, $108
 - [Anime Festival Asia: Creators Super Fest Day 2  - ft Masaharu Yamanouchi & Mitsuo Mitsui (Bocchi The Rock!, Vivy Fluorite Eye's Song), REGALILIA (JP), Ladybeard (AU), Eric Ng of TSMC, Ben Hum, Aijou etc (SG)](https://animefestival.asia/csf2023-guests/#csf-guestperformers), Singapore Expo Hall 5, [tix 🔗](https://ticketmaster.sg/activity/detail/23_afacsf2023) $19
 - [Jacky Cheung 张学友 - Show 6/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
@@ -134,14 +145,14 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
 
 
-# 24 Jul, Mon
+# 24 Jul Mon
 
 - Esplanade Jazz: [Namie and Ann Gie](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/namie-and-ann-gie), **free**
 - Candlelight: [Best of Joe Hisaishi (by Vocalise String Quartet)](https://feverup.com/m/107427), CHIJMES City Hall, left $63
 
 
 
-# 25 Jul, Tue
+# 25 Jul Tue
 - [THE Inn Livehouse Grand Opening! - DREAMZ FM 梦飞船, Joanna Dong, Alfred Sim](https://instagram.com/p/CuZMfG9Srvs/), Bugis Plus L7, New Mando Liveband Bistro
 - Esplanade Jazz: [Sean Hong Wei Trio](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/sean-hong-wei-trio)
 - `Talk`: [In Conversation with Chong Li-Chuan: Designing Sound](https://acminconversation25jul.peatix.com/), asian civilisations museum 1 empress place, **free but $10 deposit**
@@ -149,7 +160,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
 
  
-# 26 Jul, Wed
+# 26 Jul Wed
 - ~~Ellie Goulding, marina bay sands expo, $138~~
 - [The Inn Livehouse Grand Opening 2! 插班生The Freshman, 高美贵 Gao Mei Gui](https://instagram.com/p/CubcnTGycqY/), Bugis Plus L7, New Mando Liveband Bistro
 - Esplanade Jazz: [Hot, Hot, Hot Latin Jazz by Anson Fung Quartet](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/hot-hot-hot-latin-jazz), **free**
@@ -164,7 +175,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
 
  
-# 27 Jul, Thu
+# 27 Jul Thu
 - [Sabrina Carpenter](https://ticketmaster.sg/activity/detail/23_sabrina), marina bay sands expo, $98
 - [Dhruv](https://ticketmaster.sg/activity/detail/23_dhruv), theatre at mediacorp one-north (1 star avenue), $88
 - [THE Inn Livehouse Grand Opening 3! - 郭美美 Jocie Guo Mei Mei, 黄俊融 Jarrell](https://instagram.com/p/CuZMfG9Srvs/), Bugis Plus L7, New Mando Liveband Bistro
@@ -178,7 +189,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
  
 
-# 28 Jul, Fri
+# 28 Jul Fri
 - [J BALVIN](https://sistic.com.sg/events/jbalvin0723), marina bay sands, $138
 - [Jacky Cheung 张学友 - Show 7/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
 - [SINGnopsis Concert 梦乐之旅 - Hua Chen 陈华. Ben Hum 范平庚, Jarrell Huang 黄俊融, Lennerd Lim 林健辉, Lin Si Tong 林思彤, Sherman Lim 林胜文, Sherman Zhuo, Yang Min 杨敏, Yokez 叶玉棂, Zann 郭璟萱 ](https://www.eventbrite.sg/e/singnopsis-concert-tickets-675728681677?), 48 Boon Lay Way, The Chevrons, **free reg/soldout**
@@ -222,7 +233,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
  
 
  
-# 29 Jul, Sat
+# 29 Jul Sat
 - [Luck Life x STEREO DIVE FOUNDATION](https://ticketmaster.sg/activity/detail/23_llxsdf), gateway theatre bukit merah, $108
 - [Weng Li You 翁立友](https://sistic.com.sg/events/wengliyou0723), marina bay sands, $78
 - [WINGS (the Malaysian band) - the rock emperor](https://www.thestar.sg/event/wings-rock-emperor-g/), the star theatre at star vista (buona), $88
@@ -283,7 +294,7 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
 
  
-# 30 Jul, Sun - International Friendship Day
+# 30 Jul Sun
 - [Jacky Cheung 张学友 - Show 9/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
 - Esplanade Jazz: [Fred Hersch (USA)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/fred-hersch), $38
 - [Majulah Music Night 2023 ft J. Sheon, DOLLA, JASMINE, Glenn Yong, Hongjoin, Feez and 同理Zunya](https://instagram.com/p/CtyVl4EgrIz/), Somerset Skatepark, $38 (1 for 1 IG promo now)
@@ -304,21 +315,21 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
 
  
-# 31 Jul, Mon
+# 31 Jul Mon
 - [SOTA Voices sing Disney](https://ticketmaster.sg/activity/detail/23_sotavoices), SOTA (dhoby ghaut), **$11**
 - Esplanade Jazz: [Goodnight Heartache by Mario Serio, Anson Fung](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/goodnight-heartache), **free**
 - `Standup Comedy`: [The KUMAR Show July](https://eventbrite.sg/e/662450486237), ikigai izakaya riverwalk (clarke quay), $42
 
 
 
-# 01 Aug, Tue
+# 01 Aug Tue
 - [FKJ (French Kiwi Juice)](https://sistic.com.sg/events/FKJ0823), pasir panjang power station, $158
 - [SOTA Music Faculty: Process](https://ticketmaster.sg/activity/detail/23_process), SOTA (dhoby ghaut), **$11**
 - Esplanade: [inch chua's songsmith - Exploring Singapore Songs and Songwriting](https://esplanade.com/whats-on/festivals-and-series/series/feed-your-imagination/songsmith-exploring-singapore-songs-and-songwriting), $27
 
 
 
-# 02 Aug, Wed
+# 02 Aug Wed
 - [THE STROKES](https://ticketmaster.sg/activity/detail/23_thestrokes), marina bay sands expo, $148
 - Esplanade Theatre: [The Mining Trilogy: Pleasant Island](https://esplanade.com/whats-on/festivals-and-series/series/the-studios/events/the-mining-trilogy-pleasant-island), $30
 
