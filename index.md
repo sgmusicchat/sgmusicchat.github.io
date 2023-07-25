@@ -50,7 +50,6 @@ Update 25 Jul: New gigs, pretty big local names
 - DJ, [AfroDesi Singapore Vol 2.0 ft  DJs K2, Triple S, MC SWTLKR (Amapiano, Afrobeats, Bhangra, Bollywood, Baile)](https://afrodesinight.peatix.com/), Dirty Blonde Suntec City, $27
 - DJ, Potatohead: [Orio (disco funk)](https://instagram.com/p/CuB9lVzvFb1/), 36 Keong Saik Rd, bistro speakeasy bar
 - DJ, Offtrack: [Mesmé (US)](https://instagram.com/p/CuQywFPyrT2/), beside hong lim park, music gastro bar
-- `DJ & Comedy`: [RETRO NIGHT and standup](https://eventbrite.sg/e/669851984317), Furama RiverFront Waterfall Lounge, $22
 - DJ, Zouk: [100% bulletproof : ghetto & eswag (Hardstyle, Hip-hop, Big room)](https://zoukclub.com/100-bulletproof-presents-ghetto-with-big-m-3/), zouk clarke quay, $45
 - DJ, Drip: [Chambers: Chapter VIII ft joon, keagan (hiphop rnb edm)](https://www.eventbrite.com/e/678714953697), drip club 100 Orchard Rd Concorde Hotel, $30
 - DJ, Prism: [ΨΣ (Psi Sigma) III - Shut Down ft DJ Raw, Cherish, Ling, Ethan (hiphop, top40s, edm)](https://eventbrite.sg/e/678070536227), prism club marina square, $32
@@ -168,6 +167,7 @@ Update 25 Jul: New gigs, pretty big local names
 - DJ, Zouk: [TGIW](https://ticketing.zoukclub.com/step1.aspx?f81t_rBiOw6ah-fYQ_wZDA), clarke quay, **ladies free/$25**
 - DJ, Prism: [Ladies First](https://eventbrite.sg/e/675378173297), prism club marina square  , **free**
 - DJ, Club Rich: [DJ Ye (MY Man yao) & MC Sonorus](https://www.instagram.com/p/Cu4BXYNSL3j/), 114 middle road (bugis), asian club
+- \* DJ, [CULTURE presents Taylor Swift 5.0 (ft dj pin , vall)](https://culture-taylor-swift-5.peatix.com/), hard rock cafe orchard, $31 (still aavail)
 
 
  
@@ -180,9 +180,10 @@ Update 25 Jul: New gigs, pretty big local names
 - Jazz Loft: [Bright Eyes Series - The Jazzlings from NUS: Jazz In The Attic](https://eventbrite.sg/e/628314645017), blu jaz at bali ln (bugis), $22
 - SSO: [Chloe Chua and He Ziyu - Mozart Violin Concerto: Day 1](https://www.sso.org.sg/whats-on/chloe-chua-he-ziyu), ESPLANADE, [discount](https://sistic.com.sg/events/230301SSO) **$15**
 - Esplanade Jazz: [The Alina Ramirez Trio (afro Latin jazz, folk)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/the-alina-ramirez-trio), **free**
+- 1 Level Up: [53A](https://www.instagram.com/p/CvERbFGS-xg/), Blk A Clarke Quay,  Arcade & Live Music Bar
 - DJ, Offtrack: [Orio (IL)](https://instagram.com/p/CuQywFPyrT2/), beside hong lim park, music gastro bar
-- DJ, [Partydrops SG: ESCAPE - DJs Raven, Yam, Hans, Modern Bass Boy, Sharkboy (Hip-hop, Top 40s, 00s edm throwbacks)](https://instagram.com/p/Cuef8ewhaF5/), yang club clarke quay, **$15**
-- DJ, Prism: [Gucci Nights](https://eventbrite.sg/e/675384401927), PRISM Club , **Free**
+- DJ, [Partydrops SG: ESCAPE - DJs Raven, Yam, Hans, Modern Bass Boy, Sharkboy (Hip-hop, Top 40s, 00s edm)](https://instagram.com/p/Cuef8ewhaF5/), yang club clarke quay, **$15**
+- DJ, Prism: [Gucci Nights ft Skilla](https://eventbrite.sg/e/675384401927), PRISM Club , **Free**
 
  
 
@@ -201,6 +202,7 @@ Update 25 Jul: New gigs, pretty big local names
 - `Theatre`[The Mining Trilogy: Mining Stories by Silke Huysmans & Hannes Dereere (BEL)](https://sistic.com.sg/events/mining0723) , ESPLANADE, ~$35
 - Cool Cats: [Gman: Day 1 (r&b, soul)](https://www.fb.com/events/240085228890710/), 32 beach rd The NCO Club, $30
 - [John Molina at La Salsa Dempsey (rock)](https://instagram.com/p/CuoabiYM6E6/), 11 Dempsey Rd
+- \* Level Up : [Good Vibrations, Syltra, DJ Kohsh](https://www.instagram.com/p/CvERbFGS-xg/), blk a clarke quay L2, Arcade & live music bar
 - `Movie`: [Meet Me in the Bathroom (2000s nu rave garage-indie rock documentary)](https://theprojector.sg/films-and-events/meet-me-in-the-bathroom/), Projector golden mile tower, $15
 - \* `Food & Flea Market Halal` [Twilight Flea & Feast Day 1 - ft Brass Nation band, Shaun Jansen](https://instagram.com/twilightfeast/), suntec city expo L4, **free**
 - [LaLang Chinese Bistro Bar 2nd Anniversary - Elva Su Yan 苏妍 (MY)](https://instagram.com/p/Ct3vN-ZydAG/), 7 Mohamed sultan rd 
@@ -208,13 +210,13 @@ Update 25 Jul: New gigs, pretty big local names
 
 
 &nbsp;
-
+- \* DJ, [Window Sessions by hippies@war - DJs Sho(&Tell), Mukou, KKantra, Howr0ng (house, techno)](https://www.instagram.com/p/CvGbketNoEd/), Kurasu cafe "The Stand" at 1 Grange Rd opp. Cineleiseure Orchard (semi-outdoor), **free**
 - DJ, [NORTH EAST SOCIAL CLUB x Thugshop - salute (AUT Speed Garage, UKG, Wonky), Kindergarchy, Tashasan, GTHB](https://instagram.com/p/CttZQbZSMSb/), tuff club 138 robinson rd cbd, $37
 - DJ, [CULTURE X Who Hurt You Anniversary - Avenged Sevenfold & Friends](https://instagram.com/p/CuqyoPtPbqV/), club iki - ikigai riverwalk (clarke quay), $29
 - DJ, [Unfiltered Presents: One Night in Seoul (k-pop party)](https://instagram.com/p/Cu6oDRFv4Bq/), capitol theatre city hall, **free reg**
-- \* DJ, [Window Sessions by hippies@war - DJs Sho(&Tell), Mukou, KKantra, Howr0ng (house, techno)](https://www.instagram.com/p/CvGbketNoEd/), Kurasu cafe "The Stand" at 1 Grange Rd opp. Cineleiseure Orchard (semi-outdoor), **free**
-- DJ, Cherry Disco: [Flexy Ferg (AUS)](https://eventbrite.sg/e/678719447137), 133 Cecil Street, $27
-- DJ, [flow 6.0](https://instagram.com/p/Cu1uz0otMKB/), Festivo Mr Gallop / Cafe Tailormade 100 Turf Club rd (6th avenue), pending
+- \* DJ, Cherry Kitchen: [Strange Weather x Tropical Futures (dj yetpet, jeanut, rtf, blockchain Algoriddims)](https://eventbrite.sg/e/681428088757), 133 Cecil St, $27
+- DJ, [flow 6.0: the reunion](https://instagram.com/p/CvCnCndR-0o/), Festivo Mr Gallop / Cafe Tailormade 100 Turf Club rd (6th avenue), $25
+- DJ, [Retro Night: 70s 80s 90s](https://eventbrite.sg/e/684185797137), Furama RiverFront Waterfall Lounge, $22
 - DJ, [Retrospective Anthems Party by AUPE Club](https://eventbrite.com/e/669187035437), 295 Upper Paya Lebar Rd (Bartley), **free**
 - DJ, Yang Club: [Back to the Old School ft Gainzter, Sha, Shai, Mr Boo](https://instagram.com/p/Ct_D5sVSSX6/), yang club clarke quay, $20
 - DJ, Black Horse: [525 Fridays - Guest DJ Liya (TW)](https://www.instagram.com/p/Cuo1ITkr4cy/), ming arcade orchard L7, asian club
@@ -263,6 +265,7 @@ Update 25 Jul: New gigs, pretty big local names
 - [Classic Rock at Festivo Mr Gallop - The Black Dogs (GnR, AC/DC etc)](https://instagram.com/p/CuRhLyAyxLW/), 100 turf club road (6th avenue), bbq restaurant & bar
 - [Katong Dreaming: A Musical Tour](https://katongdreaming29jul23.peatix.com/), 111 E Coast Rd Rumah Kim Choo, $68
 - [Our Tampines Hub: LET'S ROCK - Divine Band (80s & 90s Rock)](https://instagram.com/p/Ctsx0OshjO-/), **free but see reg**
+- \* Level Up : [Nation One, Too Much Drama, DJ Kohsh](https://www.instagram.com/p/CvERbFGS-xg/), blk a clarke quay L2, Arcade & live music bar
 - [LaLang Chinese Bistro Bar 2nd Anniversary - Dior 大穎 (MY)](https://instagram.com/p/Ct5jfOeSsOF/), 7 Mohamed sultan rd, table
 - \* `Food & Flea Market Halal` [Twilight Flea & Feast Day 2 - ft Ralph Alvern, Dominic Chin](https://instagram.com/twilightfeast/), suntec city expo L4, **free**
 - `Concert Movie`: [David Bowie's Ziggy Stardust & The Spiders From Mars ft Jeff Beck: The Motion Picture](https://theprojector.sg/films-and-events/ziggy-stardust/), the projector golden mile tower, $20
@@ -273,6 +276,8 @@ Update 25 Jul: New gigs, pretty big local names
 - DJ, [DAYDREAM NATION by Ginette Chittick (indie, rock, shoegaze, post-punk)](https://instagram.com/p/CurK4v3yyl0/), the projector golden mile tower, **free**
 - DJ, Wild Pearl: [DARKER THAN WAX x Strange Weather - Bilik Rebus Afterparty Port Temasek ft DEAN CHEW, A'alely, Kindergarchy](https://instagram.com/p/Cu3UiNDy0bT/), wild pearl microclub at 195 pearl's hill terrace L3 (chinatown), $25
 - DJ `BEACH CLEANUP`: [Pasir Ris Park with Wild Pearl Studio](https://instagram.com/p/Cunh40uSlUC/), pasir ris park car park E or chinatown, **free?**
+- \* DJ, [C.L.U.P Presents: Playground](https://clupplayground.peatix.com/), On1 Sports Bistro , The Grandstand (sixth avenue), **$5-$10**
+- DJ, [AFROGROOVE #13](https://julyafrogroovesg-afroclubnight.peatix.com/), blu jaz at bali ln, **$15-$20**
 - DJ, [Pagoda Beats 003: Reverb - DJs Nino Blink, AKA Sounds, AMIR, JAS, B﻿UCCI (darker underground electronic party)](https://instagram.com/p/Cu6Shzyhvpi/), Orchard Cineleisure - New Projector X: No Spoilers, $27
 - DJ, [Sober Desi Nights - DJ InSayne - Glitz & Glam (bollywood, english r&b pop)](https://instagram.com/p/CuoXPKiBPZ5/), ???, $30
 - DJ, [Void debuts. Euphoria - DJ Ez Rawr, Waii, Konta (hiphop pop edm)](https://instagram.com/p/Cu9Azceh-fp/), 121 serangoon rd, $25
@@ -292,7 +297,6 @@ Update 25 Jul: New gigs, pretty big local names
 - DJ,  [Solid Ground: ALAN DIXON (UK House, Nu-Disco) + luca, bunny ross, sivanesh, anwar, stephen day](https://eventbrite.sg/e/654714447537), club iki @ ikigai izakaya riverwalk, $28
 - DJ, Yang Anniversary: [Sick Individuals (festival edm)](https://instagram.com/p/CtqtLNvAisB/), yang club clarke quay, $20
 - DJ, [ZOUK ANNIVERSARY: Dimatik](https://zoukclub.com/one-dance-with-hong-jeremy-boon-8/), zouk clarke quay, $50
-- \* DJ, [Alan Dixon (UK house, nu disco, acid) - Solid Ground Music](https://instagram.com/p/CvET7NksRtR/), club iki @ ikigai izakaya riverwalk, $28
 - DJ, [BOILER ROOM SINGAPORE Day 2: Kamma & Masalo, Helios XL, Zig Zach, Sivanesh, Kindergarchy](https://instagram.com/p/CuYjyQ9qXbv/), tanjong pagar distripark, $38
 
 
