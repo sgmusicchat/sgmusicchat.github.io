@@ -1,6 +1,6 @@
 Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 
-- [21 Jul Fri](#21-Jul-Fri)
+- [21 Jul Fri](#21-jul-fri)
 - [22 Jul Sat](#22-Jul-Sat)
 - [23 Jul Sun](#23-Jul-Sun)
 - [24 Jul Mon](#24-Jul-Mon)
@@ -12,10 +12,10 @@ Update 22 Jul: Ellie Goulding postponed. new gigs = \*
 - [30 Jul Sun](#30-Jul-Sun)
 - [31 Jul Mon](#31-Jul-Mon)
 - [01 Aug Tue](#01-Aug-Tue)
-- [02 Aug Wed](#02-Aug-Wed)
+- [02 Aug Wed](#02-aug-wed)
 - [Other Events](#Other-Events)
 
-# 21 Jul Fri
+# 21 Jul, Fri
 - Marquee: [A$AP FERG](https://marqueesingapore.com/event/marquee-presents-asap-ferg/), marina bay sands, $90
 - [Jacky Cheung 张学友 - Show 4/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
 - `Electronic/Orchestral Strings`: [From Outer Grey by KoFlow (ft Mervin Wong, David Loke, Ryan Yee, May Loh, Saenghaengfah Tosakul, Shan, Bekhzod Oblayorov & Anrev)](https://instagram.com/p/CuGdFKdNrnp/), pasir panjang power station, $25-$35
