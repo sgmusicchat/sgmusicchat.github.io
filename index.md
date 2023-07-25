@@ -1,4 +1,4 @@
-Update 25 Jul:
+Update 25 Jul: New gigs, pretty big local names
 
 - [21 Jul Fri](#21-jul-fri)
 - [22 Jul Sat](#22-jul-sat)
