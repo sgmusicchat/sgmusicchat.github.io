@@ -1,4 +1,4 @@
-Update 22 Jul: Ellie Goulding postponed. 
+Update 25 Jul:
 
 - [21 Jul Fri](#21-jul-fri)
 - [22 Jul Sat](#22-jul-sat)
@@ -20,35 +20,34 @@ Update 22 Jul: Ellie Goulding postponed.
 - [Jacky Cheung 张学友 - Show 4/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
 - `Electronic/Orchestral Strings`: [From Outer Grey by KoFlow (ft Mervin Wong, David Loke, Ryan Yee, May Loh, Saenghaengfah Tosakul, Shan, Bekhzod Oblayorov & Anrev)](https://instagram.com/p/CuGdFKdNrnp/), pasir panjang power station, $25-$35
 - [Michelle SgP ft  rhyu & Classique - YOLO Album Launch Day 2 (jazz pop/singer-songwriter)](https://esplanade.com/whats-on/2023/michelle-sgp-yolo-album-launch-concert), ESPLANADE, $48
-- Jazz Loft: [Natasya Elvira (IDN) Lucky to be Young - 1st Day](https://instagram.com/p/Cu08HDnSlhT/), blu jaz at bali ln (bugis), $22
+- Jazz Loft: [Natasya Elvira (IDN) - 1st Day](https://instagram.com/p/Cu08HDnSlhT/), blu jaz at bali ln (bugis), $22
 - Esplanade Jazz: [Date Night Friday: The Chosen Few](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/date-night-friday-the-chosen-few), **free**
 - Esplanade Jazz: [Sinclair & His Rhythmakers - At the Jazz Band Ball (jazz swing)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/at-the-jazz-band-ball), **free**
-- Esplanade Jazz: [Mischief Jam](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/mischief-jam), Mischief Bar at esplanade outdoor, **free**
-- Maduro Jazz: [Essence of Jazz ft. Rachma Lim & Maya Raisha](https://eventbrite.com/e/675873364427), Maduro, Sofitel  Sentosa, $65 drink credits
-- Cool Cats Jazz: [Latinfest Day 1! Montunico: From Cuba with Love!](https://feverup.com/m/129097), 32 Beach Road NCO Club (Esplanade), $30
+- Esplanade Jazz: [Mischief Jam](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/mischief-jam), Mischief bar esplanade, **free**
+- Maduro Jazz: [Essence of Jazz ft. Rachma Lim & Maya Raisha](https://eventbrite.com/e/675873364427), Sofitel  Sentosa, $65 drink credits
+- Cool Cats Jazz: [Latinfest Day 1! Montunico: From Cuba with Love!](https://feverup.com/m/129097), 32 Beach Road NCO Club, $30
 - `Chinese Opera`[A Show of Prowess: Peking Opera Excerpts 大显神通 - 京剧舞与武 by GuoGuang Opera (TW) 国光剧团 (台湾)](https://sistic.com.sg/events/prowess0723), ESPLANADE, $38
-- SSO: [In Your Community: Singapore Symphony Orchestra](https://www.sso.org.sg/whats-on/sso-in-your-community). ACS (Independent), **free soldout**
+- SSO: [In Your Community: Singapore Symphony Orchestra](https://www.sso.org.sg/whats-on/sso-in-your-community). ACS (Independent), **free**
 - `Indian Dance`: [Raga 2023 Nava Nartanam – 9 emotions of dance by Usharani Maniam Dance Academy](https://sistic.com.sg/events/nava0723), ESPLANADE, $30
 - [Our Tampines Hub: Yohannis & Justin](https://instagram.com/p/CuvZ9twr_k9/), **free**
 - Candlelight: [The Best of Zelda by pianist Gabriel Hoe](https://feverup.com/m/130563), The Arts House (city hall), left $52
-- `UV Art/Electronic`: [The Analog Girl x Your Artist Neighbour Exhibition 3](https://instagram.com/p/Cu6eCLIP-Ft/), Blk 78 Guan Chuan Street (tiong bahru), **free**
+- `UV Art/Electronic`: [The Analog Girl x Your Artist Neighbour Exhibition](https://instagram.com/p/Cu6eCLIP-Ft/), Blk 78 Guan Chuan Street (tiong bahru), **free**
 - [Singapore Street Fest 23: Performances at Somerset](https://www.instagram.com/p/Cu6kEB-ueRv/), 313 somerset, **free**
 
 
 &nbsp;
  
 - DJ, [CULTURE X ZYRUP: Pop Queens 3.0 ft Drag (DJs Ayekay, JJ, Marshmallowman, SoundsOfFai, Clammr)](https://culture-zyrup-pop-queens-3.peatix.com/), hard rock cafe orchard, $31
-- DJ, [WastedSG’s Come on Barbie Lets go Party ft YinYang, Electron, Caitlyn, Roy of Canvas (hiphop pop party anthems)](https://instagram.com/p/Cu1kJ2Rr2Jf/), club iki at Ikigai izakaya riverwalk (clarke quay), $35
+- DJ, [WastedSG’s Come on Barbie Lets go Party ft YinYang, Electron, Caitlyn, Roy of Canvas (hiphop pop party anthems)](https://instagram.com/p/Cu1kJ2Rr2Jf/), club iki at Ikigai izakaya riverwalk, $35
 - DJ, [Ringtone 002: beansclub, blaire coucher, truesanju (hyperpop, queer altpop party)](https://instagram.com/p/Cuwc3sxrC_J/), Cafe Tailor Made 100 Turf Club Rd (6th avenue), $23
 - DJ, [DUTTYWINE 2: DOS (queer reggaeton party)](https://instagram.com/p/CujHV0UsPfp/), Cineleisure Orchard (New Projector X: No Spoilers), $20
 - DJ, [Thugshop X FomoHomo - XOXO feat. JONNYVICIOUS KL (queer friendly)](https://eventbrite.sg/e/662787243487), MDLR 62 Cecil Street, $36
 - DJ, Tuff: [Ma De. James Riach, Nino Blink](https://instagram.com/p/CurHxmASi2y/), tuff tech-house club 138 robinson rd cbd, $35
 - DJ, Neil Conversion: [Pop Night](https://instagram.com/p/Cuy2fpkyoAj/), 43 Neil Road (maxwell), gay bar-club
 - DJ, Club Hell: [Throwback in Hell (90s)](https://instagram.com/p/CuwjipTPwpj/), 113 telok ayer, gay club $30
-- DJ, Yang: `MinistryofDJs Anniversary` [Gemstarr, red, kennerve, hanif, madjeester, effen, nomi](https://instagram.com/p/Ct_D5sVSSX6/), yang club clarke quay, $20
+- DJ, Yang: `Ministry of DJs Anniversary` [Gemstarr, red, kennerve, hanif, madjeester, effen, nomi](https://instagram.com/p/Ct_D5sVSSX6/), yang club clarke quay, $20
 - DJ,  [Back to the 90s ft DJ Jag, Big, Soul](https://eventbrite.sg/e/674919601697), blu jaz at bali ln (bugis), **$11**
 - DJ, [AfroDesi Singapore Vol 2.0 ft  DJs K2, Triple S, MC SWTLKR (Amapiano, Afrobeats, Bhangra, Bollywood, Baile)](https://afrodesinight.peatix.com/), Dirty Blonde Suntec City, $27
-- DJ, [MILK x KANANI - HIGHLIFE  (afrobeats)](https://instagram.com/p/Cu4Jsg6SoPN/), Milk Club at 530 North Bridge Rd (bugis), $30
 - DJ, Potatohead: [Orio (disco funk)](https://instagram.com/p/CuB9lVzvFb1/), 36 Keong Saik Rd, bistro speakeasy bar
 - DJ, Offtrack: [Mesmé (US)](https://instagram.com/p/CuQywFPyrT2/), beside hong lim park, music gastro bar
 - `DJ & Comedy`: [RETRO NIGHT and standup](https://eventbrite.sg/e/669851984317), Furama RiverFront Waterfall Lounge, $22
@@ -59,50 +58,47 @@ Update 22 Jul: Ellie Goulding postponed.
 
 
 # 22 Jul, Sat
-- [MIYAVI](https://www.marinabaysands.com/entertainment/shows/miyavi-concert.html), marina bay sands Exhibition Hall D, $88
+- [MIYAVI](https://www.marinabaysands.com/entertainment/shows/miyavi-concert.html), marina bay sands, $88
 - [Jacky Cheung 张学友 - Show 5/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
 - [Anxious (US Emo)](https://dividedwefallzine.bigcartel.com/product/anxious-live-in-singapore), Scape Orchard L3, $58
-- [Anime Festival Asia: Creators Super Fest Day 1 - ft MindaRyn (TH), Amelia Khor (MY), Ladybeard (AU), AniBeats x GoldenMix Rave](https://animefestival.asia/csf2023-guests/#csf-guestperformers), Singapore Expo Hall 5,  [tix 🔗](https://ticketmaster.sg/activity/detail/23_afacsf2023) $19
+- [Anime Festival Asia: Creators Super Fest Day 1 - ft MindaRyn (TH), Amelia Khor (MY), Ladybeard (AU), AniBeats x GoldenMix Rave](https://animefestival.asia/csf2023-guests/#csf-guestperformers), Singapore Expo Hall 5, $19
 - [Singapore Symphony Orchestra: Symphony in the Gardens ](https://www.sso.org.sg/whats-on/temasek-foundation-sso-symphony-in-the-gardens), Shaw Foundation Stage @ Singapore Botanic Gardens, **free**
 - `Dark Alt`: [GLITCH//\\WITCH Fest: Sangriento, Microchip Terror, Gonemune, Falling Islands, VYLT, Poetriot,  Switchblades, Duckdeleuze, 3amenities](https://instagram.com/p/CtzQeAZPJZs/), Kult Kafe The grandstand (6th avenue), $20
-- `Indie pop`: [Hongjoin's Album Release Party - SO FAR FROM YOU ft rhyu & zzzat](https://instagram.com/p/Ctlz1PLL8yD/), Gateway Theatre bukit merah, $32
-- [MANTRAVINE - Nartana LP Launch ft CERATONE, Toastybiskit, Phoeniks, Golisounds, Tiabenie, Anastasiya (electronic, psych, ethnic, house)](https://instagram.com/p/CulcmXug5fd/), Blackbird Gillman Barracks 8 Lock Rd, **free reg**
+- `Indie pop`: [Hongjoin's Album Release  - I'M SO FAR FROM YOU ft rhyu & zzzat](https://instagram.com/p/Ctlz1PLL8yD/), Gateway Theatre bukit merah, $32
+- [MANTRAVINE - Nartana LP Launch ft CERATONE, Toastybiskit, Phoeniks, Golisounds, Tiabenie, Anastasiya (psych, ethnic, electronic)](https://instagram.com/p/CulcmXug5fd/), Blackbird Gillman Barracks 8 Lock Rd, **free reg**
 - `Rock`: [Bands Arcade by One Jam ft Sigygis, 1800 Wicked, Grizzly Bears, Dimension 248](https://instagram.com/p/CuWQqRurLgp/), Festivo Mr Gallop 100 turf club (6th avenue), $25
-- Esplanade Jazz: [Gecko & Tokage Parade (JPN jazz/post-rock)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/geckoandtokage-parade), OUTDOOR, **free**
+- Esplanade Jazz: [Gecko&Tokage Parade (JPN jazz fusion/post-rock)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/geckoandtokage-parade), OUTDOOR, **free**
 - Esplanade Jazz: [Sharik Hasan & Chok Kerong](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/sharik-hasan-and-chok-kerong),**free**
 - Esplanade Jazz: [Nadine Adrianna Trio (IDN) ft. Barry Likumahuwa, Sandy Winarta](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/nadine-adrianna-trio-feat-barry-likumahuwa-and-sandy-winarta), **free**
 - Esplanade Jazz: [Stage Jam w all above](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/stage-jam), outdoor, **free**
-- Jazz Loft: [Natasya Elvira (IDN) - Last Day](https://instagram.com/p/Cun0UlBIQk2/), blu jaz at bali ln (bugis), [tix 🔗](https://eventbrite.sg/e/658156573027), $22
-- Maduro Jazz: [An Evening of Jazz Treasures ft. Rachma Lim & Sarah-Kei Lauw ](https://www.eventbrite.com/e/675893143587),  Sofitel Singapore Sentosa, $65 drink credits
-- Cool Cats Jazz: [Latinfest Day 2! Montunico: From Cuba with Love!](https://feverup.com/m/129097), 32 Beach Road NCO Club (Esplanade), $30
+- Jazz Loft: [Natasya Elvira (IDN) - Last Day](https://instagram.com/p/Cun0UlBIQk2/), blu jaz at bali ln (bugis), $22
+- Maduro Jazz: [An Evening of Jazz Treasures ft. Rachma Lim & Sarah-Kei Lauw ](https://www.eventbrite.com/e/675893143587),  Sofitel Sentosa, $65 drink credits
+- Cool Cats Jazz: [Latinfest Day 2! Montunico: From Cuba with Love!](https://feverup.com/m/129097), 32 Beach Road NCO Club, $30
 - `Indian Music-Dance`: [Niranjan Pandian's My Identity - Beyond Artistry ( என் அடையாளம்)  with Bhaskar Arts Academy](https://myidentity2023.peatix.com/), aliwal arts centre, $28
 - [Jankaar Beats 2023: A Journey on Musical Waves (ft Sivamani, Stephen Devassy, Naresh Iyer, Seethalakshmi, Steven Samuel Devassy )](https://esplanade.com/whats-on/2023/jankaar-beats-2023-a-journey-on-musical-waves), ESPLANADE, $50
 - `Indian Dance`: [Nava Nartanam – 9 emotions of dance](https://esplanade.com/whats-on/festivals-and-series/series/2023/raga/nava-nartanam-9-emotions-of-dance), ESPLANADE, $24
 - [SMU Symphonia - Grandioso IV: Once Upon A Dream](https://instagram.com/p/CtjUqKzhzSE/), singapore conference hall 7 shenton way, **$17**
-- `Chinese & Malay Trad Vocal/Poetry`: [Longing 遥望 by Siong Leng Musical Association](https://sistic.com.sg/events/longing0723), Drama Centre Black box (bugis), $28
+- `Chinese & Malay Trad Vocal/Poetry`: [Longing 遥望 by Siong Leng Musical Association](https://sistic.com.sg/events/longing0723), Drama Centre Black box (national library), $28
 - `Meditation`: [As Water Dances Through Us: Soundscape Meditation by Jean Reiki](https://soundscapemeditation.peatix.com/), 155 middle rd (objectifs gallery), **$15**
 - `Fundraiser` [NAMIBIA ACC (Amitofo Care Centre) CONCERT 纳米比亚ACC东南亚感恩汇演 ](https://sistic.com.sg/events/namibia0723), Kreta Ayer People's Theatre, $68
-- `Church Choral`:  [HOS Concert 2023 - Come, Let Us Sing ](https://sistic.com.sg/events/hos0723), newton life church, $30
 - `Canto Opera`: [A Lighter Side of History: Memoir of Woo Wai Fong and Introduction to Cantonese Opera](https://intro-to-opera.peatix.com/), national museum of singapore, $5 sold out
 - `Drag:` [RIOT!](https://riot230722.peatix.com/), hard rock cafe orchard, $25
 - `Music Theatre/Comedy`[Our Tampines Hub: DIM SUM DOLLIES & Hossan Leong](https://instagram.com/p/Cuq_esaBeHM/), **free 1st come**
 - [Stratos Rooftop Bar Singing Contest](https://instagram.com/p/Cut5wdpvaZY/), national design centre 111 middle rd (bugis)
-- [John Molina and Krueger at La Salsa Mexican Dempsey (rock)](https://instagram.com/p/CuyPj8QrjHw/), 11 Dempsey Rd
-- \* [Dansen John at Yardbird Southern Table 5-8pm](https://www.marinabaysands.com/campaign/music-festival.html), marina bay sands
-- [Parliament: Lets Rock Out to Rad Dad (retro rock/pop , yacht rock, soft rock) - Toto, Journey, Phil Collins, Hall & Oats](https://instagram.com/p/CujdB3ayebn/), 18 teck lim road (outram), US style bar
+- [Dansen John at Yardbird Southern Table 5-8pm](https://www.marinabaysands.com/campaign/music-festival.html), marina bay sands
+- [Parliament: Lets Rock Out to Rad Dad (retro rock , yacht rock, soft rock) - Toto, Journey, Phil Collins, Hall & Oats](https://instagram.com/p/CujdB3ayebn/), 18 teck lim road (outram), US style dive bar
 - [Singapore Street Fest 23: Academy of Rock Showcase](https://www.instagram.com/p/Cu6kEB-ueRv/), 313 somerset, **free**
 
 &nbsp;
 
-- DJ, [Revision presents Tamen (AU Breakbeat, Jungle, D&B), Gahmen, Helios XL, Dexter Colt](https://instagram.com/p/Cs3hNvuSN0E/), club iki at ikigai riverwalk (clarke quay), $30
+- DJ, [Revision presents Tamen (AU Breakbeat, Jungle, D&B), Gahmen, Helios XL, Dexter Colt](https://instagram.com/p/Cs3hNvuSN0E/), club iki at ikigai izakaya riverwalk, $30
 - DJ, [GrooveTop: Manila Takeover ft. Secret Pals, ManilaJunkie & Margàchi (PH funk, soul, hip hop, r&b, Afro, disco, house)](https://instagram.com/p/CujrP0byw9H/), ETTA 66 Kampong Bugis, $35
 - DJ, [TOSKA AND FRIENDS 360](https://eventbrite.sg/e/663043670467), SKYFALL ROOFTOP RESTROBAR (harbourfront), **$11**
 - DJ, Prism: [Entity Volume 3: DJs Limmy, Kiara, Raw, Cherish (EDM, 00s pop, Hiphop)](https://eventbrite.sg/e/676464823497), prism club marina square , $32
 - DJ, [Straight Outta Kampong: Kampong Boogie](https://instagram.com/p/CugXk6dy7I3), babyrascal 30 maxwell rd, $20
-- `Live Band + DJ`: [Kanpai Group x Asahi AFTER-PARTY! ](https://eventbrite.sg/e/671333575797), Yoasobi by Kanpai, 33 Pekin St, **free reg**
 - DJ, Club Hell: [Barbie in Hell](https://clubhell2207.peatix.com/), 113 telok ayer, gay club $30
 - DJ, Neil Conversion: [Mandopop Night ft DJ Elvin (hk)](https://instagram.com/p/Cu1daLKyeaw/), 43 Neil Road (maxwell), gay bar-club
-- DJ, [Crash Cartel: y2k Rewind (ft Momentaro, shaney richochet, KZ, MC Sxsi)](https://instagram.com/p/Cuo3zqDPRhy/), club limelight 79 Circular Rd (boat quay), now $22
+- DJ, [Crash Cartel: y2k Rewind (ft Momentaro, shaney richochet, KZ, MC Sxsi)](https://instagram.com/p/Cuo3zqDPRhy/), club limelight 79 Circular Rd (boat quay), left $22
 - DJ, [DESI THUMKA at Magic Carpet Lounge (Bollywood, Bhangra, Punjabi)](https://www.eventbrite.sg/e/665192577907), 7500E Beach Rd, $37
 - DJ, Milk: [x KANANI  - VIVA LA VIDA (reggaeton)](https://eventbrite.com/e/668196693297), Milk Club at 530 North Bridge Rd (bugis), $30
 - DJ, Yang Club: [Reggaetonight](https://instagram.com/p/CugF2dLI_4w/), yang club clarke quay, $20
@@ -114,34 +110,33 @@ Update 22 Jul: Ellie Goulding postponed.
 - DJ, Marquee: [Soundclash (free for tertiary students)](https://marqueesingapore.com/event/soundclash-16/), marina bay sands, $20
 - DJ, Drip: [Brett Allen (tech house, edm, hard, psytrance)](https://www.eventbrite.sg/e/678728895397), drip club 100 Orchard Rd Concorde Hotel, $27
 - DJ, [Element Presents: Techno Edition 1 ft Mr Gray, Hou zi, Kevin Punx, Furious Styles](https://instagram.com/p/CugXnrNs4-H/), blu jaz at bali ln (bugis) , $26
-- DJ, [EATMEPOPTART Social: ABSTRACT RELATIONS w Adrian Wee (techno)](https://www.eatmepoptart.com/events/empt-220723), Cineleisure Orchard (The New Projector X: No Spoilers), **$12**
-- DJ, Thugshop XXL: [JONAS SAALBACH (DE melodic techno/prog)](https://instagram.com/p/Cu3ihQ-NhGk/), MDLR Club 62 Cecil Street L2, [tix 🔗](https://eventbrite.sg/e/660285480647), $42
+- DJ, [EATMEPOPTART: ABSTRACT RELATIONS w Adrian Wee (techno)](https://www.eatmepoptart.com/events/empt-220723), Cineleisure Orchard (Projector X: No Spoilers), **$12**
+- DJ, Thugshop XXL: [JONAS SAALBACH (DE melodic techno/prog)](https://instagram.com/p/Cu3ihQ-NhGk/), MDLR Club 62 Cecil Street L2, $42
 - DJ, Tuff: [Thugshop X Midnight Shift - ANSWER CODE REQUEST [DE Techno, OSTGUT/Berghain]](https://eventbrite.sg/e/662868636937), tuff club 138 robinson rd cbd, $36
 
  
 
 # 23 Jul, Sun
 - [GARNiDELiA](https://ticketmaster.sg/activity/detail/23_garnidelia), Singapore Expo Hall 5, $108
-- [Anime Festival Asia: Creators Super Fest Day 2  - ft Masaharu Yamanouchi & Mitsuo Mitsui (Bocchi The Rock!, Vivy Fluorite Eye's Song), REGALILIA (JP), Ladybeard (AU), Eric Ng of TSMC, Ben Hum, Aijou etc (SG)](https://animefestival.asia/csf2023-guests/#csf-guestperformers), Singapore Expo Hall 5, [tix 🔗](https://ticketmaster.sg/activity/detail/23_afacsf2023) $19
+- [Anime Festival Asia: Creators Super Fest Day 2  - ft Masaharu Yamanouchi & Mitsuo Mitsui (Bocchi The Rock!, Vivy), REGALILIA (JP), Ladybeard (AU), Eric Ng of TSMC, Ben Hum, Aijou etc (SG)](https://animefestival.asia/csf2023-guests/#csf-guestperformers), Singapore Expo Hall 5, $19
 - [Jacky Cheung 张学友 - Show 6/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
 - Esplanade: [Swar Pravaaham – A Musical Voyage by Nawaz Mirajkar (NUS Indian Instrumental Ensemble)](https://esplanade.com/whats-on/festivals-and-series/series/2023/raga/swar-pravaaham-a-musical-voyage), $30
 - Esplanade Jazz: [JOSHUA WAN feat. ALPACA](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/joshua-wan-feat-alpaca), concourse, **free**
 - Esplanade Jazz: [Big Band Sunday: SWS City Swing Band](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/big-band-sunday-sws-city-swing-band), outdoor, **free**
-- Esplanade Jazz: [Free Jazz Night with More Molecules](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/free-jazz-night-with-more-molecules), annexe studio, **free w reg**
+- Esplanade Jazz: [Free Jazz Night with More Molecules (experimental)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/free-jazz-night-with-more-molecules), annexe studio, **free w reg**
 - Esplanade Jazz : `Dance` [Authentic Jazz Dance Taster Classes](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/authentic-jazz-dance-taster-classes), courtyard, **free**
 -  `Chinese Opera` [Chun-cao's Intrusion at the Court – World's Best Comedy 春草闯堂 – 天下第一喜剧 by GuoGuang Opera (TW) 国光剧团 (台湾)](https://esplanade.com/whats-on/2023/chun-caos-intrusion-at-the-court-worlds-best-comedy), ESPLANADE, $38
 -  `Theatre` [Re: Assembly - Last Show](https://esplanade.com/whats-on/festivals-and-series/series/feed-your-imagination/re-assembly), ESPLANADE, $23
 - `Indian Dance`: [Nava Nartanam – 9 emotions of dance](https://esplanade.com/whats-on/festivals-and-series/series/2023/raga/nava-nartanam-9-emotions-of-dance), ESPLANADE, $24
-- Jazz Loft: [Sunday Jam Session](https://eventbrite.sg/e/647850336797), blu jaz at bali ln (bugis), **free**
+- Jazz Loft: [Sunday Jam Session](https://eventbrite.sg/e/647850336797), blu jaz at bali ln, **free**
 - `Choral`: [CATHARSIS by EVOKX Chamber Choir and The Chorallective](https://achoralcatharsis.peatix.com/), Victoria Concert Hall, $25
-- [Our Tampines Hub Love Is In The Air!: Amanda & Jingxuan](https://instagram.com/p/CuvZ9twr_k9/), **free**
+- [Our Tampines Hub: Amanda & Jingxuan](https://instagram.com/p/CuvZ9twr_k9/), **free**
 - Candlelight: [Tribute to Mayday 五月天 by pianist Gabriel Hoe](https://feverup.com/m/118351), the arts house city hall, left $52
 
 &nbsp;
 
 - DJ, [The Weekend Hangout Vol 4: Sunday Service - ft Tunes by KC (R&B, Latin)](https://instagram.com/p/Cu1uXJ3xc-B/), at Draper Startup House 39 Ann Siang Rd, **$16**
-- \* DJ, [Driguo (latin house, disco) at Levant Cocktail Bar ](https://instagram.com/p/Cu1eb1_pIjH),32 Tras St (maxwell)
-- DJ, Prism: [Sundiu Nights (hard dance, psytrance, manyao, eurodance)](https://eventbrite.sg/e/675388343717), prism club marina square  , **Free**
+- DJ, [Driguo (latin house, disco) at Levant Cocktail Bar ](https://instagram.com/p/Cu1eb1_pIjH),32 Tras St (maxwell)
 - DJ, Potato Head: [Rooftop: In The Wild (Pearl) - underground housey party](https://instagram.com/p/CurOscmSCxH/), 36 Keong Saik Rd, bistro rooftop bar
 
 
@@ -162,7 +157,7 @@ Update 22 Jul: Ellie Goulding postponed.
 
  
 # 26 Jul, Wed
-- ~~Ellie Goulding, marina bay sands expo, $138~~
+- \* [Jasmine Sokko & brb. - Mediacorp indieGO More Than Music](https://www.instagram.com/p/CvE9_vZt8KT/), Capitol Theatre Outdoor Plaza (city hall), **free**
 - [The Inn Livehouse Grand Opening 2! 插班生The Freshman, 高美贵 Gao Mei Gui](https://instagram.com/p/CubcnTGycqY/), Bugis Plus L7, New Mando Liveband Bistro
 - Esplanade Jazz: [Hot, Hot, Hot Latin Jazz by Anson Fung Quartet](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/hot-hot-hot-latin-jazz), **free**
 - Jazz Loft: [Sinclair Ang & His Rhythmakers](https://eventbrite.sg/e/672943681667), The Jazz Loft @ Blu Jaz, $22
@@ -179,6 +174,7 @@ Update 22 Jul: Ellie Goulding postponed.
 # 27 Jul, Thu
 - [Sabrina Carpenter](https://ticketmaster.sg/activity/detail/23_sabrina), marina bay sands expo, $98
 - [Dhruv](https://ticketmaster.sg/activity/detail/23_dhruv), theatre at mediacorp one-north (1 star avenue), $88
+- \* [Charlie Lim, shye, Yung raja - Mediacorp indieGO More Than Music](https://www.instagram.com/p/CvE9_vZt8KT/), Capitol Theatre Outdoor Plaza (city hall), **free**
 - [THE Inn Livehouse Grand Opening 3! - 郭美美 Jocie Guo Mei Mei, 黄俊融 Jarrell](https://instagram.com/p/CuZMfG9Srvs/), Bugis Plus L7, New Mando Liveband Bistro
 - Cool Cats Jazz: [Latinfest! Hector Infanzon: Special Concert](https://feverup.com/m/129097), 32 Beach Road NCO Club (Esplanade), $48
 - Jazz Loft: [Bright Eyes Series - The Jazzlings from NUS: Jazz In The Attic](https://eventbrite.sg/e/628314645017), blu jaz at bali ln (bugis), $22
@@ -205,7 +201,8 @@ Update 22 Jul: Ellie Goulding postponed.
 - `Theatre`[The Mining Trilogy: Mining Stories by Silke Huysmans & Hannes Dereere (BEL)](https://sistic.com.sg/events/mining0723) , ESPLANADE, ~$35
 - Cool Cats: [Gman: Day 1 (r&b, soul)](https://www.fb.com/events/240085228890710/), 32 beach rd The NCO Club, $30
 - [John Molina at La Salsa Dempsey (rock)](https://instagram.com/p/CuoabiYM6E6/), 11 Dempsey Rd
-- `Movie`: [Meet Me in the Bathroom (2000s garage-indie rock documentary)](https://theprojector.sg/films-and-events/meet-me-in-the-bathroom/), Projector golden mile tower, $15
+- `Movie`: [Meet Me in the Bathroom (2000s nu rave garage-indie rock documentary)](https://theprojector.sg/films-and-events/meet-me-in-the-bathroom/), Projector golden mile tower, $15
+- \* `Food & Flea Market Halal` [Twilight Flea & Feast Day 1 - ft Brass Nation band, Shaun Jansen](https://instagram.com/twilightfeast/), suntec city expo L4, **free**
 - [LaLang Chinese Bistro Bar 2nd Anniversary - Elva Su Yan 苏妍 (MY)](https://instagram.com/p/Ct3vN-ZydAG/), 7 Mohamed sultan rd 
 
 
@@ -215,6 +212,7 @@ Update 22 Jul: Ellie Goulding postponed.
 - DJ, [NORTH EAST SOCIAL CLUB x Thugshop - salute (AUT Speed Garage, UKG, Wonky), Kindergarchy, Tashasan, GTHB](https://instagram.com/p/CttZQbZSMSb/), tuff club 138 robinson rd cbd, $37
 - DJ, [CULTURE X Who Hurt You Anniversary - Avenged Sevenfold & Friends](https://instagram.com/p/CuqyoPtPbqV/), club iki - ikigai riverwalk (clarke quay), $29
 - DJ, [Unfiltered Presents: One Night in Seoul (k-pop party)](https://instagram.com/p/Cu6oDRFv4Bq/), capitol theatre city hall, **free reg**
+- \* DJ, [Window Sessions by hippies@war - DJs Sho(&Tell), Mukou, KKantra, Howr0ng (house, techno)](https://www.instagram.com/p/CvGbketNoEd/), Kurasu cafe "The Stand" at 1 Grange Rd opp. Cineleiseure Orchard (semi-outdoor), **free**
 - DJ, Cherry Disco: [Flexy Ferg (AUS)](https://eventbrite.sg/e/678719447137), 133 Cecil Street, $27
 - DJ, [flow 6.0](https://instagram.com/p/Cu1uz0otMKB/), Festivo Mr Gallop / Cafe Tailormade 100 Turf Club rd (6th avenue), pending
 - DJ, [Retrospective Anthems Party by AUPE Club](https://eventbrite.com/e/669187035437), 295 Upper Paya Lebar Rd (Bartley), **free**
@@ -222,14 +220,14 @@ Update 22 Jul: Ellie Goulding postponed.
 - DJ, Black Horse: [525 Fridays - Guest DJ Liya (TW)](https://www.instagram.com/p/Cuo1ITkr4cy/), ming arcade orchard L7, asian club
 - DJ, [Party Social: Mambo Night (80s, 90s)](https://mambonightatrubato.peatix.com/), RUBATO STEAKHOUSE  2 Teck Lim Road, $20
 - DJ, HQ: [Barren Sector, EJ Missy](https://instagram.com/p/CurHlzrSkoI/?img_index=2), headquarters techno club 66A boat quay
-- DJ, [Habouji Reggaeton Vol IV](https://instagram.com/p/CuzL383OzWk/), ??? , $31
+- \* DJ, [Habouji Reggaeton Vol IV: new theme - Unofficial J Balvin afterparty](https://instagram.com/p/CuzL383OzWk/), MDLR 62 cecil street (telok ayer), $31
 - DJ, [Latino Anthem ft OLLIE DES x NADDZ x YENN x JAG x MC Hadi (Reggaeton x Latin Pop)](https://eventbrite.sg/e/674530558057), Dirty Blonde Suntec City Sky Garden bar, **$11**
 - DJ, [BLASÈ ft Sweezy, DJ K, Piratheeb (90s, hiphop, rnb, reggaeton, dancehall)](https://instagram.com/p/CuyrT06AzHs/), blu jaz at bali ln (bugis), **$15**
 - DJ, Offtrack: [Senthil](https://instagram.com/p/CuQywFPyrT2/), beside hong lim park, music gastro bar
 - DJ, Potatohead: [Stephen Day (disco funk nite)](https://instagram.com/p/CuB9lVzvFb1/), 36 Keong Saik Rd, bistro speakeasy bar
 - DJ, Zouk Phuture: [.WAV(Y) with Prav & xG (hiphop, rnb, afro)](https://instagram.com/p/CuwVW8dMyqO/), Phuture, Zouk, $22
 - DJ, [EATMEPOPTART: WHATEVER ft KiDG & Fantastic Dinosaur (90s/00s)](https://www.eatmepoptart.com/events/empt-280723), hard rock cafe orchard, $22
-- \* DJ, Marquee: [GRYFFIN](https://marqueesingapore.com/event/marquee-presents-gryffin/), marina bay sands, $45
+- DJ, Marquee: [GRYFFIN](https://marqueesingapore.com/event/marquee-presents-gryffin/), marina bay sands, $45
 - DJ, [BOILER ROOM SINGAPORE Day 1: Alex Kassian, Jenn chunes, Bongomann, A'lely, PetYet, Dean Chew ft Kaye](https://instagram.com/p/CuYjyQ9qXbv/), tanjong pagar distripark, $38
  
 
@@ -240,6 +238,7 @@ Update 22 Jul: Ellie Goulding postponed.
 - [WINGS (the Malaysian band) - the rock emperor](https://www.thestar.sg/event/wings-rock-emperor-g/), the star theatre at star vista (buona), $88
 - [LATINFEST 23: Hector Infanzón, Steve Thornton's Afro Asia, Marcio Mendes, Junes, Montunico, Havana Social Club ft Lilly.V, Ireson ft Veronica Barboza](https://www.marinabaysands.com/entertainment/shows/latin-festival.html), marina bay sands expo, [discount 🔗](https://sistic.com.sg/events/latinfest0723) $28
 - [Jacky Cheung 张学友 - Show 8/11](https://ticketmaster.sg/activity/detail/23_jc60), indoor stadium, $168
+- \* [FIG (bedroom pop/alt pop acoustic set) in SG by SimpleArte Gallery x Cob Stand](https://www.instagram.com/p/CvEiBb9vCEU/), 27A Arab Street (bugis), **rsvp**
 - `Indie`: [The Stripped Down Show - Kelvin Tan of The Oddfellows,  ryfkiherdi of Uranophobia, goneMUNE, Bowden, Capo3, A﻿ndi Aziz](https://eventbrite.sg/e/665120763107), Crane (Arab Street), **$15**
 - [World Strings Day: 150 String Musicians at South Beach (classical, national day)](https://instagram.com/p/Cu5xzuHNgyW/), South Beach Avenue, 26 Beach Road, **free**
 - [EK SHAM RAFI SAHEB & KE NAAM](https://eventbrite.sg/e/668950818907), 2 Tessensohn Road, Singapore Khalsa Assc, $35
@@ -257,13 +256,15 @@ Update 22 Jul: Ellie Goulding postponed.
 - Esplanade Jazz: [Soojin Suh Quartet (KR)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/soojin-suh-quartet), **free**
 - Esplanade Jazz: [Stage Jam w all above](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/stage-jam), outdoor, **free**
 - `Theatre`[The Mining Trilogy: Mining Stories by Silke Huysmans & Hannes Dereere (BEL)](https://sistic.com.sg/events/mining0723) , ESPLANADE, ~$35
-- `Standup Comedy`: [Elena Gabrielle - My Best Bits tour ](https://www.eventbrite.sg/e/elena-gabrielle-my-best-bits-tour-singapore-tickets-631313895857), blackbird music bar at gillman barracks (labrador park), $37
-- `Pokemon Party` [at Daijoubu SMU (aka the recently cancelled tsundere cafe)](https://instagram.com/p/Cu6pgSFBRln/), SMU 80 Stamford Rd, B1 School of Computing
 - Cool Cats: [The Gman Show Last (r&b, soul)](https://www.fb.com/event/240085228890710/), 32 beach rd The NCO Club, $30
+- \* `Discussion`: [Ctrl + N' - An Unorthodox guide to Freelancing ft. Fauxe (as school of altruism) & Speak Cryptic by ATOM podcast](https://instagram.com/p/Cu8vaO6rg0C/?img_index=2), Singapore Chinese Cultural Centre 1 Straits Blvd (cbd)
+- `Pokemon Party` [at Daijoubu SMU (aka the recently cancelled tsundere cafe)](https://instagram.com/p/Cu6pgSFBRln/), SMU 80 Stamford Rd, B1 School of Computing
+- `Standup Comedy`: [Elena Gabrielle - My Best Bits tour ](https://www.eventbrite.sg/e/elena-gabrielle-my-best-bits-tour-singapore-tickets-631313895857), blackbird music bar at gillman barracks (labrador park), $37
+- [Classic Rock at Festivo Mr Gallop - The Black Dogs (GnR, AC/DC etc)](https://instagram.com/p/CuRhLyAyxLW/), 100 turf club road (6th avenue), bbq restaurant & bar
 - [Katong Dreaming: A Musical Tour](https://katongdreaming29jul23.peatix.com/), 111 E Coast Rd Rumah Kim Choo, $68
 - [Our Tampines Hub: LET'S ROCK - Divine Band (80s & 90s Rock)](https://instagram.com/p/Ctsx0OshjO-/), **free but see reg**
-- [LaLang Chinese Bistro Bar 2nd Anniversary - Dior 大穎 (MY)](https://instagram.com/p/Ct5jfOeSsOF/), 7 Mohamed sultan rd 
-- [Classic Rock at Festivo Mr Gallop - The Black Dogs (GnR, AC/DC etc)](https://instagram.com/p/CuRhLyAyxLW/), 100 turf club road (6th avenue), bbq restaurant & bar
+- [LaLang Chinese Bistro Bar 2nd Anniversary - Dior 大穎 (MY)](https://instagram.com/p/Ct5jfOeSsOF/), 7 Mohamed sultan rd, table
+- \* `Food & Flea Market Halal` [Twilight Flea & Feast Day 2 - ft Ralph Alvern, Dominic Chin](https://instagram.com/twilightfeast/), suntec city expo L4, **free**
 - `Concert Movie`: [David Bowie's Ziggy Stardust & The Spiders From Mars ft Jeff Beck: The Motion Picture](https://theprojector.sg/films-and-events/ziggy-stardust/), the projector golden mile tower, $20
 
  
@@ -274,13 +275,13 @@ Update 22 Jul: Ellie Goulding postponed.
 - DJ `BEACH CLEANUP`: [Pasir Ris Park with Wild Pearl Studio](https://instagram.com/p/Cunh40uSlUC/), pasir ris park car park E or chinatown, **free?**
 - DJ, [Pagoda Beats 003: Reverb - DJs Nino Blink, AKA Sounds, AMIR, JAS, B﻿UCCI (darker underground electronic party)](https://instagram.com/p/Cu6Shzyhvpi/), Orchard Cineleisure - New Projector X: No Spoilers, $27
 - DJ, [Sober Desi Nights - DJ InSayne - Glitz & Glam (bollywood, english r&b pop)](https://instagram.com/p/CuoXPKiBPZ5/), ???, $30
-- \* DJ, [Void debuts. Euphoria - DJ Ez Rawr, Waii, Konta (hiphop pop edm)](https://instagram.com/p/Cu9Azceh-fp/), 121 serangoon rd, $25
+- DJ, [Void debuts. Euphoria - DJ Ez Rawr, Waii, Konta (hiphop pop edm)](https://instagram.com/p/Cu9Azceh-fp/), 121 serangoon rd, $25
 - DJ, [BABY BOY vol 25: TOTES REQUEST LIVE (pop, lgbt)](https://instagram.com/p/CuT6izhSrZN/), hard rock cafe orchard, $20
 - `+ Drag Pre-show` [RIOT! cum BABY BOY](https://riotcumbb230729.peatix.com/), hard rock cafe orchard, (see above), $30
 - DJ, 🏖[Fuego Night: Life’s A Beach (Tropico)](https://fuegobeachtropico.peatix.com/), Sand Bar Sentosa, $30
 - DJ, 🏖 [Fuego Nights presents: Life's a Beach! (Reggaeton, Dancehall & Afrobeats)](https://fuegobeachtropico.peatix.com/),  Sand Bar Sentosa, 53 Siloso Beach Walk, $30
 - DJ, 🏖 [Manifest Pool Party feat HIMMAT + JEEVAN LEROY + JAMES SELVA + MIKKI S](https://eventbrite.sg/e/670694624677), 1-Altitude Coast Sentosa, $35
-- \* DJ `Silent Disco`: [Pelago's Full Moon at Marina Bay Sands SkyPark](https://www.marinabaysands.com/attractions/offers/silent-disco-full-moon-party.html), MBS Hotel, $38
+- DJ `Silent Disco`: [Pelago's Full Moon at Marina Bay Sands SkyPark](https://www.marinabaysands.com/attractions/offers/silent-disco-full-moon-party.html), MBS Hotel, $38
 - DJ, CÉ LA VI: [AMY DABBS (deep house, Atmospheric Drum and Bass)](https://celavisingaporeamydabbs.peatix.com/), marina bay sands tower 3, $38
 - DJ, Tuff: [Thugshop X Art Beyond - KHEN (progressive, house, and techno)](https://eventbrite.sg/e/667352538407), tuff club 138 robinson rd cbd, $35
 - DJ, HQ: [Haan, Amber H, Emma SS](https://instagram.com/p/CurHlzrSkoI/?img_index=2), headquarters techno-house club 66A boat quay
@@ -289,8 +290,9 @@ Update 22 Jul: Ellie Goulding postponed.
 - DJ, [Freebird x Paris2Tokyo ft. DJ Sappychill - Bar & Food](https://instagram.com/p/CuwHqWvuxch/), freebird Katong Shopping Centre, craft beer bar
 - DJ, [Last Saturdays x Puck Provisions: Sean T, Hi-kel, Mari, HBN, Haili (with Alive Brewery)](https://instagram.com/p/CutxqnFyOYg/), Puck Provisions Cafe 618 Serangoon Rd, **free**
 - DJ,  [Solid Ground: ALAN DIXON (UK House, Nu-Disco) + luca, bunny ross, sivanesh, anwar, stephen day](https://eventbrite.sg/e/654714447537), club iki @ ikigai izakaya riverwalk, $28
-- DJ, Yang Club Anniversary: [Sick Individuals (festival edm)](https://instagram.com/p/CtqtLNvAisB/), yang club clarke quay, $20
+- DJ, Yang Anniversary: [Sick Individuals (festival edm)](https://instagram.com/p/CtqtLNvAisB/), yang club clarke quay, $20
 - DJ, [ZOUK ANNIVERSARY: Dimatik](https://zoukclub.com/one-dance-with-hong-jeremy-boon-8/), zouk clarke quay, $50
+- \* DJ, [Alan Dixon (UK house, nu disco, acid) - Solid Ground Music](https://instagram.com/p/CvET7NksRtR/), club iki @ ikigai izakaya riverwalk, $28
 - DJ, [BOILER ROOM SINGAPORE Day 2: Kamma & Masalo, Helios XL, Zig Zach, Sivanesh, Kindergarchy](https://instagram.com/p/CuYjyQ9qXbv/), tanjong pagar distripark, $38
 
 
@@ -300,7 +302,7 @@ Update 22 Jul: Ellie Goulding postponed.
 - Esplanade Jazz: [Fred Hersch (USA)](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/fred-hersch), $38
 - [Majulah Music Night 2023 ft J. Sheon, DOLLA, JASMINE, Glenn Yong, Hongjoin, Feez and 同理Zunya](https://instagram.com/p/CtyVl4EgrIz/), Somerset Skatepark, $38 (1 for 1 IG promo now)
 - [JASSO Ethno-Jazz Ensemble: Kaleidoscope – An Asian Jazz Odyssey ft Jeremy Monteiro, Chok Kerong, RitXu & more](https://instagram.com/jazzassociation_sg/), SCCC 1 Straits Boulevard (cbd), $38
-- [SSS FEST: Live J-Pop by local talents (ft Aijou, Kirameki Future, Yoshimi & more) ](https://instagram.com/p/CtyCljdPSZQ/), JEM (Jurong East) L2, **free**
+- [SSS FEST: Live JPop by locals - by SG Street Festival (ft Aijou, Kirameki Future, Yoshimi, Nyoombaku & more) ](https://instagram.com/p/CtyCljdPSZQ/), JEM (Jurong East) L2, **free**
 - Esplanade Jazz: [Louis Soliano and friends](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/louis-soliano-and-friends), **free**
 - Esplanade Jazz: [Big Band Sunday: Jazz Extravaganza with the Music Elements](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/big-band-sunday-jazz-extravaganza-with-the-music-elements), outdoor, **free**
 - Esplanade Jazz : [Authentic Jazz Dance Taster Classes](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/jazz-in-july/events/authentic-jazz-dance-taster-classes), courtyard, **free**
@@ -309,6 +311,8 @@ Update 22 Jul: Ellie Goulding postponed.
 - Jazz Loft: [Sunday Jam Session](https://eventbrite.sg/e/647851700877), blu jaz at bali ln (bugis), **free**
 - [Soulful Sunday .:. Soul Jam with Mama Patricia](https://eventbrite.sg/e/677320813787), 59A Haji Lane L2, $22
 - `Chinese Opera Workshop`: [Opera-Me: A Make-Up Experience](https://www.eventbrite.sg/e/672695058027?), 5 Smith St. (chinatown), $80
+- \* `Food & Flea Market` [Twilight Flea & Feast Day 3 - ft Arshad Sunday, Yanni Ruth](https://instagram.com/twilightfeast/), suntec city expo L4, **free*
+- \* [Soul "Vivesco" at SimpleArte Gallery - Music Therapy with live performances](https://instagram.com/p/CvFNdruAwDH/), 27A Arab Street L2, $20
 - DJ, 🏖 [Drip Pool Party ft DJ Shai, K Faith, Knrck, Ange (Hiphop, R&B, Latin, Afrobeats)](https://instagram.com/p/CumEi-FhOLy/), 1-Altitude Coast. Outpost Hotel Sentosa, $20
 - DJ, PRISM: [Sundiu Nights (Hard dance, Manyao, Psytrance, Eurodance)](https://eventbrite.sg/e/675387059877), prism club marina square , **free**
 - DJ, [Oonik : The Divine Feminine by Club Kiki (ft. Aya, Jas, EJ MISSY, Muttiah Ashnim, Kara Elle) ](https://eventbrite.sg/e/672044472107), 36 Club Street, The Backroom, Queer/Femme Friendly, $20
@@ -339,9 +343,8 @@ Update 22 Jul: Ellie Goulding postponed.
 # Other Events
 - 6 - 30 Jul: `Standup Comedy`[Kumar Guilty](https://sistic.com.sg/events/kumar0723), marina bay sands, $58
 - 20 Jul - 4 Aug: [SOTA Showcases (Plays, Classical Music, Choral, Ethnic)](https://ticketmaster.sg/activity/detail/23_rhapsodies), each $14
-- 21 - 22 Jul: `Chinese Crosstalk Standup`[Roaring Good Times 16 哄堂16](https://sg.bookmyshow.com/events/RGT16723), national library drama centre (bugis), $30
-- 21, 28, 4 Aug: `Drag + Movie` [Glory Hoes present That Pink Movie](https://theprojector.sg/films-and-events/pink/), the projector golden mile tower, $34
-- 22 Jul: `Haw Par Villa Guided Tour`[Tiger, Tiger Burning Bright: Legacy of the Aw Family](https://peatix.com/event/3631699), $5
+- 21 - 22 Jul: `Chinese Crosstalk Standup`[Roaring Good Times 16 哄堂16](https://sg.bookmyshow.com/events/RGT16723), national library drama centre, $30
+- 28 Jul, 4 Aug: `Drag + Movie` [Glory Hoes present That Pink Movie](https://theprojector.sg/films-and-events/pink/), the projector golden mile tower, $34
 - 24 Jul - 27 Jul: `Kids Chinese Music Theatre`[The Zodiac Race](https://esplanade.com/whats-on/festivals-and-series/series/feed-your-imagination/the-zodiac-race), ESPLANADE, $23
 - 26 Jul - 9 Sep: `Kids Theatre`[Goldilocks and the Three Bears 金发姑娘和三只熊](https://sistic.com.sg/events/goldilocks0923), KC Arts Ctr, $27
 - 27 - 30 Jul: `Ballet`: [Swan Lake: Acrobatic Ballet Drama](https://sistic.com.sg/events/swan0723), ESPLANADE, $48
