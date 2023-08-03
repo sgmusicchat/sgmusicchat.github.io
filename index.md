@@ -4,7 +4,7 @@ Update 25 Jul: New gigs, pretty big local names
 - [5 Aug Sat](#05-aug-sat)
 
 # 04 Aug, Fri
-- [MR BIG - Day 1](https://www.sistic.com.sg/events/mrbig0823), marina bay sands, $88
+- [MR BIG](https://www.sistic.com.sg/events/mrbig0823) `DAY 1`, marina bay sands, $88
 - [Alpha Wolf](https://eventbrite.sg/e/664502554027), Aliwal Arts Centre, $42
 - [TYGA](https://marqueesingapore.com/event/marquee-presents-tyga/), marquee nightclub Marina Bay Sands, $90
 -  [Jacky Cheung 张学友 - Show 11/11](https://ticketmaster.sg/activity/detail/23_jc60) `LAST`, indoor stadium, $168
@@ -24,6 +24,8 @@ Update 25 Jul: New gigs, pretty big local names
 - [Sundowner (rock) at Molly Malone's Irish Pub](https://www.instagram.com/p/CvcC4iou0pM), 56 circular rd (boat quay), bar
 - [Gegar Moto Fest Day 1 : MK K-Clique, Bushmen, Ryzall Noh](https://www.instagram.com/p/CuOsYthJ95e/), Singapore Expo, **free**
 - `DJ and Bands`: [Brewnanza Craft Beer Fest Day 2: Hunger Tanks (rock), DJ Epimaco, DJ Collective Ice Cream Sundays + Entry to Prism Nightclub](https://www.instagram.com/p/CvJ5ZJwO7Zc/), marina bay sands bayfront event space, $40
+- Cool Cats: [Jamie Aditya Graham (ID-AU swing jazz)](https://feverup.com/m/136420)`DAY 2`, jw mariott beach rd (esplanade), jazz-ish bar $30
+- [Jeremy Monteiro, Eugene Pao (HK), Hong Chanutr at Warehouse Hotel - Jazz Series](https://www.sevenrooms.com/experiences/twhlobbybar/9283419916), 320 Havelock Road Robertson Quay, soldout but [JM has a tip](https://www.instagram.com/p/CvUYcMdp4p9/)
 - Jazz Loft: [Sean Hong Wei Quintet](https://eventbrite.sg/e/671961423707), blu jaz at bali ln (bugis), $22
 - Maduro Jazz: ["Some Of My Best Friends Are Jazz Cats" by Dua Empat, Hansen & Joshua](https://eventbrite.com/e/670803560507), sofitel sentosa, $38 drink credits 
 
