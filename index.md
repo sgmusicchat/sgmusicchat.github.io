@@ -27,7 +27,7 @@ Update 25 Jul: New gigs, pretty big local names
 - [Gegar Moto Fest Day 1 : MK K-Clique, Bushmen, Ryzall Noh](https://www.instagram.com/p/CuOsYthJ95e/), Singapore Expo, **free**
 - Jazz Loft: [Sean Hong Wei Quintet](https://eventbrite.sg/e/671961423707), blu jaz at bali ln (bugis), $22
 - Maduro Jazz: ["Some Of My Best Friends Are Jazz Cats" by Dua Empat, Hansen & Joshua (Fri)](https://eventbrite.com/e/670803560507), sofitel sentosa, $38 drink credits 
-- 
+
 &nbsp;
 - DJ, [YUNG SINGH](https://www.ticketfairy.com/event/yung-singh2023), MDLR 62 cecil street (telok ayer), $65
 - DJ, [TeenagePop (indie rock, pop nite)](https://www.instagram.com/p/CvVERJby7vT/), Orchard Cineleisure L5 Projector X No Spoilers Bar, [**free RSVP**](https://eventbrite.sg/e/688832024127)
