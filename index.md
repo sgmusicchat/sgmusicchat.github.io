@@ -318,7 +318,7 @@
 - [Chinese Festival 2023:《拨动心弦》南艺华乐室内乐团 NAFA Chinese Chamber Ensemble](https://ticketmaster.sg/activity/detail/23_nafaensemble), Singapore Conference Hall (shenton way), **$18**
 - Simply Jazz: [Rit Xu Organ Trio ft Siti Nur Iman (vocal)](https://www.instagram.com/p/Cv9liERSETJ/), CHIJMES city hall b1 jazz bar
 - Esplanade: [RENE (pop-rock)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/red-dot-august/rene-pick-your-own-adventure), **Free**
-- Esplanade: [Piano Recital by Alexander Kobrin: Beethoven | Chopin | Rachmaninoff](https://esplanade.com/whats-on/2023/piano-recital-by-alexander-kobrin-beethoven-chopin-rachmaninoff), 
+- Esplanade: [Piano Recital by Alexander Kobrin: Beethoven, Chopin, Rachmaninoff](https://esplanade.com/whats-on/2023/piano-recital-by-alexander-kobrin-beethoven-chopin-rachmaninoff), 
 
 # 30 Aug, Wed
 - [Chinese Festival 2023: 《吹打和鸣庆丰年》Celebration of Winds and Percussion](https://ticketmaster.sg/activity/detail/23_windnpercuss), Singapore Conference Hall (shenton way), **$18**
