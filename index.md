@@ -258,7 +258,7 @@
 - `NITE FEST`: [JAZZ'IN Last: Jazz Djogets (pop yeh-yeh, dangdut, disco), Sunny Trio & Natt Buntita (THA jazz)](https://www.nightfestival.gov.sg/whats-on/jazzin-capitol-singapore-a-night-in-asia), capitol theatre outdoor (city hall), [Line-up Guide](https://www.nightfestival.gov.sg/-/media/snf2022/whats-on/snf2023-programmes/stage-performances/jazzin--capitol-singapore--a-night-in-asiabios.pdf)**free** 
 - `NITE FEST`: [Peranakan Museum - PORT CITY 2.0: Reggae Remedy, Astronauts](https://www.nhb.gov.sg/peranakanmuseum/WhatsOn/Programmes/Singapore-Night-Festival-2023) `Week 2`, Armenian St (city hall), **free**
 - `NITE FEST`: [Stories of the Sea: storytelling & crafts](https://instagram.com/p/CvrfG6uhfYb/?img_index=3) `family friendly`, National Archives (city hall)
- 
+
 &nbsp;
 
 - DJ, [Snow Rave by Combined Local Uni Party: The Ultimate Winter Party Experience - DJ Limmy, Clody, Skabush, Chervy, Sharkboy, Bernie Soiree, Kasho, Vanvanz, Pillazion](https://eventbrite.com/e/677574653027), Snow City (Jurong East), $55
