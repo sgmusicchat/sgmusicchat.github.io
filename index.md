@@ -311,7 +311,6 @@
 - [Chinese Festival: “南风杯”古琴国际大赛颁奖典礼暨古琴名家音乐会 Gu Qin Festival](https://ticketmaster.sg/activity/detail/23_guqinfest23), Singapore Conference Hall, **$18**
 - Esplanade: [RENE (pop-rock)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/red-dot-august/rene-pick-your-own-adventure), **Free**
 
-
 # 29 Aug, Tue
 - T'ang Quartet: [Chamber of Heroes ft dan dan wang & jamshid s(caroline shaw, haydn, beethoven)](https://www.sistic.com.sg/events/heros0823), victoria concert hall, $20
 - [Chinese Festival 2023:《拨动心弦》南艺华乐室内乐团 NAFA Chinese Chamber Ensemble](https://ticketmaster.sg/activity/detail/23_nafaensemble), Singapore Conference Hall (shenton way), **$18**
@@ -320,29 +319,39 @@
 - Esplanade: [Piano Recital by Alexander Kobrin: Beethoven, Chopin, Rachmaninoff](https://esplanade.com/whats-on/2023/piano-recital-by-alexander-kobrin-beethoven-chopin-rachmaninoff), 
 
 # 30 Aug, Wed
-- [Chinese Festival 2023: 《吹打和鸣庆丰年》Celebration of Winds and Percussion](https://ticketmaster.sg/activity/detail/23_windnpercuss), Singapore Conference Hall (shenton way), **$18**
 - `INDIE`: [Off The Rails Vol V: FUDGY, MARY SUE, MADE WITH MONSTERS, Jargon Bleu](https://www.instagram.com/p/CvwlRvdyZRL/), Sixteen Ounces Bar & Kitchen (hillview), $27
+- [Chinese Festival 2023: 《吹打和鸣庆丰年》Celebration of Winds and Percussion](https://ticketmaster.sg/activity/detail/23_windnpercuss), Singapore Conference Hall (shenton way), **$18**
 - Esplanade: [Cosmic Armchair (electronic, synthpop)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/red-dot-august/cosmic-armchair), **Free**
 - Jazz Loft: [Sinclair Ang & His Rhythmakers](https://eventbrite.sg/e/692267920987), blu jaz L3 @ bali ln (bugis), $22
-- DJ, [CULTURE: Back 2 TwoThousands - Boyband & Girlband edition](https://www.instagram.com/p/CwAnhJ4N11X/), hard rock cafe orchard, $30
-- `*`: [NTU Piano Ensemble: Rekindle with smu ivory keys and nus piano ensemble (Inter-Varsity)](https://www.instagram.com/p/CwHp_azB8YE/), ESPLANADE, **$18**
+- [NTU Piano Ensemble: Rekindle with smu ivory keys and NUS piano ensemble (Inter-Varsity)](https://www.instagram.com/p/CwHp_azB8YE/), ESPLANADE, **$18**
 - Blackbird: [What The Funk lah!](https://www.instagram.com/p/CwSbpEcPVc0/), Blackbird Music Bar Gillman Barracks @ 8 Lock Rd
+- [Gotti Italiano Restaurant's Glitz & Glamour ft DJ set](https://www.instagram.com/p/CwSHiy5geWF/), 78 amoy street 
+- DJ, [Selectors by The Observatory - Melvin Tan, Anna Lovecchio, Renee Ting, Dapheny Chen (arts crossover playlist, depends on their taste)](https://www.instagram.com/p/CwVM3loSJ_t/), goodman arts centre (mountbatten), **free**
 
 # 31 Aug, Thu
 - [Chinese Festival 2023: 阮的新声：座谈暨音乐会 Ruan Reimagined: A Seminar-Concert by Singapore Ruan Ensemble 新加坡阮咸印象室内乐团](https://ticketmaster.sg/activity/detail/23_ruan), ESPLANADE, $28
-- [SMU One - Music, Dance, Comedy Talent Competition](https://sg.bookmyshow.com/events/SMUAF237), Singapore Management University
-- [超级回忆杀演唱会](https://eventbrite.sg/e/676339669157), Lowercase, $84
-- `*` [Hades/SH33LLL & Friends (Scumboys (w vyndicate) Rudy, Reefer) of Menticley Records](https://www.eventbrite.sg/e/701880582717) `HYPERPOP Digicore / Indie / hiphop` , simplearte gallery  27A arab st**$11**
+- [SMU One - Music, Dance, Comedy Talent Competition](https://sg.bookmyshow.com/events/SMUAF237), Singapore Management University, **free**
+- [Hades/SH33LLL & Friends (Scumboys w. vyndicate, Rudy, Reefer) of Menticley Records](https://www.eventbrite.sg/e/701880582717) `Hyperpop Digicore / Indie hiphop`, simplearte gallery  27A arab st, **$15**
 - Esplanade: [MERVIN WONG - Electroacoustic Sagas and Improvisations](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/red-dot-august/electroacoustic-sagas-and-improvisations), **Free**
-- Jazz Loft: [BOSSA NOVA 101: Olen Riyanto ](https://eventbrite.sg/e/690381057327), blu jaz L3 @ bali ln (bugis), $22
-- Esplanade: [ALBIZIA – An Immersive Performance Installation](https://esplanade.com/whats-on/festivals-and-series/series/the-studios/events/albizia-an-immersive-performance-installation), 
+- Esplanade: [ALBIZIA – An Immersive Performance Installation by Robert Zhao Renhui](https://esplanade.com/whats-on/festivals-and-series/series/the-studios/events/albizia-an-immersive-performance-installation), $30 
+- NAFA School of Music: [Concert Series: Winning Keys (keyboard)](https://www.eventbrite.sg/e/705254333697), 151 Bencoolen St Lee Foundation Theatre, **free RSVP**
+-  YST: [Visiting Artist Series: Koichiro Harada (violin) & Friends Chamber Recital](https://www.instagram.com/p/CwfCOQ9BG7Z/), NUS yong siew toh conservatory, **$10**
+- Jazz Loft: [BOSSA NOVA 101: Olen Riyanto (BR)](https://eventbrite.sg/e/690381057327), blu jaz L3 @ bali ln (bugis), $22
 - [Shang Sisters (KL Nanyang Jazz) at Grand Shanghai](https://www.instagram.com/p/Cvz57F5NOHC/), 390 Havelock Road
-- [Molly Malone's Irish Pub 28th anniversary](https://www.instagram.com/p/Cvvy72ySa0C/)
-- `*` DJ, [EATMEPOPTART x Teenage Pop: Kim & Fiona x Weelikeme  (indie rock, alt pop party)](https://www.instagram.com/p/CwMfy19y4Uv/), The Projector No Spoilers Bar @ Cineleisure Orchard, [sample](https://www.instagram.com/p/CwRWA4CIGbE) **free**
+- [Matarambang Fast - Kaspyx (ID doom), k503, haal Flesh Disgorged](https://www.instagram.com/p/CuRju-MBItA/) `metal/experimental`, lithe, $20
+- [Molly Malone's Irish Pub 28th anniversary ft Rock Rosettes](https://www.instagram.com/p/Cvvy72ySa0C/), 56 circular rd (boat quay)
+ 
+&nbsp; 
+ 
+-  DJ, [EATMEPOPTART x Teenage Pop (Adrian Wee x Kim & Fiona)  - indie rock, alt pop party](https://www.instagram.com/p/CwMfy19y4Uv/), The Projector No Spoilers Bar @ Cineleisure Orchard, [sample](https://www.instagram.com/p/CwRWA4CIGbE) **free**
+- DJ, [Culture pres Back 2 TwoThousands 00s boy & girl bands edition](https://www.instagram.com/p/CwXQnUpvzHC/), hard rock cafe orchard, $31
+- DJ, Cherry Disco: [Bollywood Night by Shiv Kamdar](https://www.instagram.com/p/Cv9n5zgvh8l/), 133 cecil st (cbd), $35
+- DJ, [flow x wasted sg - Throwback thursdays (00s party bangers) ft DJ X, Ryson, Roy of iki, Special K](https://www.instagram.com/p/CwcpW9sAOCR/), club iki @ ikigai izakaya riverwalk (clarke quay), $25
 - DJ, Club Hell: [Election in Hell](https://www.instagram.com/p/CwSXOfYPdka/), gay club @ 113 telok ayer st, $30
-- DJ, Prism: [Gucci Nights](https://eventbrite.sg/e/693564739807), prism club @ marina square, **free**
+- DJ, Prism: [Gucci Nights (hiphop, reggaeton afro, latin)](https://eventbrite.sg/e/693564739807), prism club @ marina square, **free**
 - DJ, Offtrack: [Joshua P (house, disco, breaks)](https://www.instagram.com/p/CvESLpbS7gm/?img_index=2), bs hong lim park, music gastro bar
-- DJ, Marquee: [Mixtape Madness (90s 00s hiphop pop)](https://marqueesingapore.com/event/marquee-mixtape-madness/), marina bay sands
+- DJ, Marquee: [Mixtape Madness (90s 00s hiphop pop)](https://marqueesingapore.com/event/marquee-mixtape-madness/), marina bay sands, 
+
 
 # [Night Fest Specials](https://nightfestival.gov.sg/)
 - 18-26 Aug: [Time is a Black Circle roller disco](https://instagram.com/p/Cv3yMfuACnf/), national museum, $22-$26
