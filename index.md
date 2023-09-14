@@ -1,4 +1,4 @@
-Too many gigs. I've exceeded the character limit by 5000 characters
+Need to trim 5000 characters
 
 # 15 Sep 2023, Fri - F1 Race Weekend
 - [KIM SEON HO](https://www.sistic.com.sg/events/ksh0923), The Star Theatre (buona vista), $138
@@ -198,7 +198,7 @@ Too many gigs. I've exceeded the character limit by 5000 characters
 - DJ, [Mad&Midas pres. HipHop Night with Tunes by KC](https://eventbrite.com/e/718696810507), Mad&Midas @ Ghost Writer 98 Club St L2, **free**
 
 # 22 Sep 2023, Fri
-- [SLOW MACHINE DREAMING | an evening of poetry reading by writer and artist, Ang Kia Yee.](https://peatix.com/event/3698618), parklane shopping mall lvl 8, $10
+- [SLOW MACHINE DREAMING - an evening of poetry reading by writer and artist, Ang Kia Yee.](https://peatix.com/event/3698618), parklane shopping mall lvl 8, $10
 - Jazz Loft: [Pekka Pylkkänen Quartet](https://eventbrite.sg/e/704318945927), Blu Jaz L3 @ bali ln (bugis), $24
 - Maduro Jazz: [Breaking Boundaries ft. Chelsea Goh & Timothy Mok](https://eventbrite.com/e/717145761277), maduro @ sofitel sentosa, $38++ drink credits
 - SCO Chinese Orchestra: [Chamber Charms: Night of Percussion 室内乐系列：打击乐之夜](https://www.sistic.com.sg/events/charms0923), singapore conference hall @ 7 shenton way, $30
