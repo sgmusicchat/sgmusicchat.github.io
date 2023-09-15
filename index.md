@@ -5,10 +5,11 @@ Need to trim 5000 characters
 - DJ, Marquee: [HARDWELL](https://marqueesingapore.com/event/marquee-presents-hardwell-supported-by-tim-hox-2/), marina bay sands, $90 soldout
 
 &nbsp; 
+ 
 [**F1 Guide**](https://singaporegp.sg/en/entertainment/2023-entertainment-line-up)
-- F1 Main Stage: 88 Rising Acts - CN/KR: JACKSON WANG, KR: BIBI, JP: ATARASHII GAKKO!, XG, TH: MILLI, IDN: NIKI, WARREN HUE  RICH BRIAN
-- F1 General Stage Acts: Airliftz (MY), Hijack Hayley,  Dreebsby, Matilde G (SG),  Jinan Laetitia (IDN), Kalpee (Trini), Safia (AU), Sunwich (IDN)
-- F1 DJ General Stage: DJ Taaka, Jamie Hall, Aurora (SG), DJ Mass (sri lanka)
+- Zone 4: 88 Rising - JACKSON WANG, BIBI (CN/KR) + ATARASHII GAKKO!, XG (JP) + MILLI (TH) + NIKI, WARREN HUE, RICH BRIAN (IDN)
+- Zone 4: Jinan Laetitia (IDN rnb neo soul), Sunwich (IDN indie pop) Matilde G (dance pop), Dreebsby (pop rock), Safia (AU indie pop electronica), DJs Jamie Hall, Mass
+- Zone 1 : Hijack Hayley (indie), Kalpee (TRINI Calypso), Airliftz (MY hiphop), DJs Taaka, Aurora, Mass
 
 &nbsp;
 
@@ -60,16 +61,18 @@ Need to trim 5000 characters
 - DJ, [1880 PR1X - MARIEME, LEON DREAM, RAJA RANI, KRUMBS, DREM -  The Official Friday Night F1 Party](https://eventbrite.com/e/696560610537), 1880 Singapore @ InterContinental Robertson Quay , $157
 - DJ, Phuture: [Yeti Out (HK) - eclectic house, garage, funky, sino grime](https://zoukclub.com/experience-the-g-force-gpss-race-weekend-presents-yeti-out-jeremy-boon/), zouk clarke quay, [pre-event @ limited edt chamber Wisma Atria](https://instagram.com/p/CxIB9BPv0Qq/) $30-$50
 - DJ, [Thugshop - GORJE HEWEK [ANJUNADEEP]](https://eventbrite.sg/e/709276112947), MDLR club @ 62 cecil st (cbd), $42
-- 
+
+
 # 16 Sep 2023, Sat
 - DJ, Marquee: [ALAN WALKER](https://marqueesingapore.com/event/marquee-presents-alan-walker/), marina bay sands, $90 soldout
 
 &nbsp; 
 
 [**F1 Guide**](https://singaporegp.sg/en/entertainment/2023-entertainment-line-up)
-- F1 Main Stage: POST MALONE, KINGS OF LEON, CULTURE CLUB, THE KOOKS
-- F1 General Stage Acts: JOAN (US),  aswekeepsearching (IND post rock), San Cisco, Safia, MEG MAC (AU), Hijack Hayley,  Jinan Laetitia (IDN), Airliftz (MY),
-- F1 DJ General Stage: DJ Nicolette, Taaka, Jamie Hall, Aurora (SG), DJ Mass (sri lanka)
+- Zone 4 Main: POST MALONE, KINGS OF LEON
+- Zone 4: aswekeepsearching (IND post rock),  Hijack Hayley, Airliftz (MY), Jinan Laetitia (IDN), MEG MAC (AU neo-soul indie pop), Safia (AU), DJs TAAKA, NICOLETTE, JAMIE HALL
+- Zone 1 Main: CULTURE CLUB, THE KOOKS
+- Zone 1: JOAN (US alt-pop), San Cisco (AU indie pop), DJs MASS, JAMIE HALL, AURORA
 
 &nbsp;
 
@@ -137,9 +140,10 @@ Need to trim 5000 characters
 &nbsp; 
 
 [**F1 Guide**](https://singaporegp.sg/en/entertainment/2023-entertainment-line-up)
-- F1 Main Stage: ROBBIE WILLIAMS, MADNESS, GROOVE ARMADA, KINGS OF LEON
-- F1 General Stage Acts: JOAN (US),  San Cisco, MEG MAC (AU), Hijack Hayley (SG), Sunwich, Jinan Laetitia (IDN), Airliftz (MY),
-- F1 DJ General Stage: BOY GEORGE DJs, DJ BIG M, Nicolette, Taaka, Jamie Hall, Aurora (SG), DJ Mass (sri lanka)
+- Zone 1 Main: MADNESS, KINGS OF LEON
+- Zone 1: Meg Mac (AU), Airliftz (MY),  DJs Nicolette, Taaka, BIG M, BOY GEORGE of Culture Club
+- Zone 4 Main: ROBBIE WILLIAMS, GROOVE ARMADA
+- Zone 4: Joan (US), San Cisco (AU), Sunwich (IDN), Hijack Hayley, DJs Aurora, Jamie Hall, Mass, Taaka
 
 &nbsp;
 
