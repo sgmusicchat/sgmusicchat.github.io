@@ -8,13 +8,13 @@ Full Listing pls visit https://reddit.com/r/singaporemusicchat/comments/16ix0yo/
 - ... part of LOLA 23: [LOVE OUR LIBRARIES & ARCHIVES Month](https://www.eventbrite.sg/cc/2339409)
 - 27 Sep - 3rd Oct: [Clay Camp / Ceramics Singapore](https://www.instagram.com/p/CxZ08NYyatH/?), also features a closing party with [Syndicate (weish, kiat, intriguant, cherry, chan) ft Xue](https://www.instagram.com/p/CxDSzYNSJV6/)
 - 23-30 Sep: FILM FEST - [Buddhist Film Festival at Shaw Lido](https://thisfilmfest.com/2023/schedule/), Shaw Lido (Orchard), $15 / movie
-- 23-29 Sep: MID AUTUMN FST -  [Wan Qing Mid-Autumn Festival 2023 at Sun Yat Sen Memorial Hal](https://www.sysnmh.org.sg/en/whats-on/events/wan-qing-mid-autumn-festival-2023), Sun Yat Sen Nanyang Memorial Hall (balestier/novena/whampoa)
+- 23-29 Sep: MID AUTUMN FST -  [Wan Qing Mid-Autumn Festival 2023 at Sun Yat Sen Memorial Hal](https://www.sysnmh.org.sg/en/whats-on/events/wan-qing-mid-autumn-festival-2023), Sun Yat Sen Nanyang Memorial Hall (balestier/novena/whampoa), free
 
 
 
 # Other Arts 
 - Till 24th Sep: [Now Is Not The Time - that lee kuan yew exhibition by x3d & daniel arsham](https://www.nowisnotthetime.sg/), 25 Pasir Panjang Road
-- 8-23 Sep: Theatre - [G\*D IS A WOMAN by wild rice](https://www.sistic.com.sg/events/woman0923)
+- 8-23 Sep: Theatre - [G\*D IS A WOMAN by wild rice](https://www.sistic.com.sg/events/woman0923), wild rice theatre @ Funan city hall, $25
 - 20-24 Sep: Theatre - [Measure for Measure: William Shakespeare - by The Stage Club](https://www.sistic.com.sg/events/measure0923), KC Arts Centre (robertson quay), $30
 - 22-24 Sep: Theatre -[Anthropocene by Vivian Quek](https://sg.bookmyshow.com/events/TWF20232)
 - 22-24 Sep: Theatre - [Caryl Churchill's  Love & Information by SMU Stageit](https://sg.bookmyshow.com/events/SMUAF235), drama centre @ national library (bugis), $19
