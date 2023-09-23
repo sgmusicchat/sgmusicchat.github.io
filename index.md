@@ -1,8 +1,8 @@
 Full Listing pls visit https://reddit.com/r/singaporemusicchat/comments/16ix0yo/megalist_sg_gigs_raves_concerts_f1_edition_15_28/
 
 # Weekend Fest
-- 23-24 Sep: [Singapore Arts Museum- A Weekend with SAM: closing of Hito Steryl's Factory of the Sun, Lila + opening of Proof of Personhood: Identity and Authenticity in the Face of Artificial Intelligence](https://www.singaporeartmuseum.sg/Art-Events/Exhibitions/Proof-of-Personhood), SAM tanjong pagar distripark, free for residents $5-$10 for rest.
 - 22 Sep - 1 Oct: [Singapore Design Week events](https://mothership.sg/2023/09/singapore-design-week-2023/), around bras basah to orchard area, official [webpage](https://sdw.designsingapore.org/)
+- 23-24 Sep: [Singapore Art Museum - A Weekend with SAM: closing of Hito Steyryl's Factory of the Sun, Lila + opening of Proof of Personhood: Identity and Authenticity in the Face of AI](https://www.singaporeartmuseum.sg/Art-Events/Exhibitions/Proof-of-Personhood), SAM tanjong pagar distripark, free for residents $5-$10 for rest.
 - 16-30 Sep: ARTS FEST - [The new SUBSTATION  - Re-connect/Centre/Converge festival](https://www.instagram.com/p/CwF8dnHSUps/), Parklane Shopping Centre Lvl 8 Big Carpark, $55 for full pass, check their [peatix link](https://peatix.com/group/8429/) for their upcoming events
 - 23-24 Sep: National Archives & Library: [All Things Singapore Festival](https://www.eventbrite.sg/cc/all-things-singapore-at-sg-2023-2329109), National Archives city hall, **free**
 - ... part of LOLA 23: [LOVE OUR LIBRARIES & ARCHIVES Month](https://www.eventbrite.sg/cc/2339409)
@@ -23,7 +23,7 @@ Full Listing pls visit https://reddit.com/r/singaporemusicchat/comments/16ix0yo/
 - 24 Sep: Queer Comedy - [阿PAN - 望子成凤 Be Proud Of You](https://theprojector.sg/films-and-events/be-proud-of-you/), the projector golden mile tower, $30
 - 21 Sep - 8 Oct: Musical Theatre - [&Juliet by Max Martin](https://www.marinabaysands.com/entertainment/shows/juliet.html), marina bay sands, $68
 - 21-24 Sep: Kids - [The Smeds & The Smoos ](https://www.sistic.com.sg/events/smeds0922), Victoria Theatre, $38
-- 23 Sep: Kids [Wan Qing Mid-Autumn Festival 2023: Tales in Melodies: Teochew Songs & Rhymes Workshop | 潮州歌谣工作坊](https://wqmaf23-teochewsongrhyme.peatix.com/), Sun Yat Sen Nanyang Memorial Hall (balestier), $10
+- 23 Sep: Kids [Wan Qing Mid-Autumn Festival 2023: Tales in Melodies: Teochew Songs & Rhymes Workshop 潮州歌谣工作坊](https://wqmaf23-teochewsongrhyme.peatix.com/), Sun Yat Sen Nanyang Memorial Hall (balestier), $10
 - 23 Sep: Tabletop Games - [Dungeons & Dragons w/The Legitimate Business](https://www.eventbrite.sg/e/678714151297?), Choa Chu Kang Library, **free RSVP**
 - 22-23 Sep: Movie Screening - [Marina Bay Carnival - Top Gun Maverick on 22nd, Jurassic World Dominion 23rd](https://www.instagram.com/p/Cw0F5YXAnfJ/), the lawn @ marina bay, **free**
 - 22 Sep: Comedy - [Vir Das: Mind Fool Tour in Singapore](https://esplanade.com/whats-on/2023/vir-das-mind-fool-tour-in-singapore), ESPLANADE, $88
