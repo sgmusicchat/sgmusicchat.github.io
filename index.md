@@ -3,7 +3,7 @@ Unfortunately I was quite busy this week so this is the temporary thread
 # 13 Oct 2023, Fri
 - [BURNOUT SYNDROMES (JP)](https://www.sistic.com.sg/events/burnout1023), Gateway Theatre Bukit Merah, $108
 - [曾沛慈 Pets Tseng - This is Live! 之 Chill Hi 嗨音乐趴](https://www.sistic.com.sg/events/chill1023), Capitol Theatre City Hall, $88
-- [FRIDAY NIGHT FURY ft. Kelvin Tan of The Oddfellows, Iman's League, Sugar, SFX, Haal, Vitriol, Antiwira, Ruckuz ](https://www.instagram.com/p/Cx4i6KoS59k/), + DJ, [DJ Mari, Wonderfool vs  Ambient Energy](https://prohibitedprojects.blogspot.com/2023/10/friday-night-fury-prohibited-dancefloor.html),  Phil's Studio @ High Street Centre L3 (City hall), $20
+- [FRIDAY NIGHT FURY ft. Kelvin Tan of The Oddfellows, Iman's League, Sugar, SFX, Haal, Vitriol, Antiwira, Ruckuz ](https://www.instagram.com/p/Cx4i6KoS59k/), `punk rock vibe + kelvin`  + DJ, [DJ Mari, Wonderfool vs  Ambient Energy](https://prohibitedprojects.blogspot.com/2023/10/friday-night-fury-prohibited-dancefloor.html),  Phil's Studio @ High Street Centre L3 (City hall), $20
 - Experimental: [NUS Electronic Music Lab - Four Blank Walls: Experiments in Sound ft Syafiq Halid](https://www.instagram.com/p/CySApA9hk0h/) - more info (https://eventbrite.sg/e/689104509137), NUS University Town, Stephen Riady Centre, Dance Studio **free**
 - SSO Gala: [Dvořák and Tchaikovsky – Hans Graf and Leonidas Kavakos](https://www.sistic.com.sg/events/230411SSO), Victoria Concert Hall, $25
 - Candlelight: [Chopin’s Best Works w/ pianist Churen Li](https://feverup.com/m/95674), The Arts House City Hall, left $68 
