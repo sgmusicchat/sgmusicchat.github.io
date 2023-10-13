@@ -1,7 +1,10 @@
+Unfortunately I was quite busy this week so this is the temporary thread
+
 # 13 Oct 2023, Fri
 - [BURNOUT SYNDROMES (JP)](https://www.sistic.com.sg/events/burnout1023), Gateway Theatre Bukit Merah, $108
 - [曾沛慈 Pets Tseng - This is Live! 之 Chill Hi 嗨音乐趴](https://www.sistic.com.sg/events/chill1023), Capitol Theatre City Hall, $88
-- [FRIDAY NIGHT FURY ft. Kelvin Tan of The Oddfellows, Iman's League, Sugar, SFX, Haal, Vitriol, Antiwira, Ruckuz ](https://www.instagram.com/p/Cx4i6KoS59k/), + DJ Prohibited Dancefloor ft Mari, Wonderfool vs  Ambient Energy (no poster),  Phil's Studio @ High Street Centre L3 (City hall), $20
+- [FRIDAY NIGHT FURY ft. Kelvin Tan of The Oddfellows, Iman's League, Sugar, SFX, Haal, Vitriol, Antiwira, Ruckuz ](https://www.instagram.com/p/Cx4i6KoS59k/), 
++ DJ, [DJ Mari, Wonderfool vs  Ambient Energy](https://prohibitedprojects.blogspot.com/2023/10/friday-night-fury-prohibited-dancefloor.html),  Phil's Studio @ High Street Centre L3 (City hall), $20
 - Experimental: [NUS Electronic Music Lab - Four Blank Walls: Experiments in Sound ft Syafiq Halid](https://www.instagram.com/p/CySApA9hk0h/) - more info (https://eventbrite.sg/e/689104509137), NUS University Town, Stephen Riady Centre, Dance Studio **free**
 - SSO Gala: [Dvořák and Tchaikovsky – Hans Graf and Leonidas Kavakos](https://www.sistic.com.sg/events/230411SSO), Victoria Concert Hall, $25
 - Candlelight: [Chopin’s Best Works w/ pianist Churen Li](https://feverup.com/m/95674), The Arts House City Hall, left $68 
@@ -25,6 +28,7 @@
 - DJ, [CULTURE Presents Retro Metro ft Djs Pin &Vira](https://culture-retro-metro-4.peatix.com/), Projector X No Spoilers Bar @ Cineleisure Orchard, $31
 -  DJ, [Halloween Costume DJ Party - Catfish Izakaya 3rd anniversary](https://eventbrite.sg/e/725978771047), Catfish Izakaya @ 5 Gemmill Ln (telok ayer cbd), **free**
 - DJ, [Rewind x Yang: Back to Old School RnB Flashback Friday ft Kidd Royale, Resty, Shai, MC Hund](https://eventbrite.com/e/721051222617), Yang Club Clarke Quay Blk A, $25
+- DJ, [DJ Mari and Wonderfool vs Ambient Energy (techno, ambient) by prohibited projects](https://prohibitedprojects.blogspot.com/2023/10/friday-night-fury-prohibited-dancefloor.html), phil's studio 2.0 @ High Street Centre L3 (City hall), $25
 - DJ, [Friday the 13th (bollywood, kollywood, top40s)](https://fridaythe13th.peatix.com/), dirty blonde @ suntec city L3 sky garden bar, **$10**
 - DJ, Club Hell: [Daddies in Hell](https://clubhell1310.peatix.com/), gay club @ 113 telok ayer st, $30
 - DJ, iki: [Latino Anthem (Reggaeton x Latin Pop)](https://eventbrite.sg/e/733290350177), club iki @ ikigai izakaya riverwalk (clarke quay), **$16**
