@@ -1,33 +1,40 @@
-Full Listing pls visit https://reddit.com/r/singaporemusicchat/comments/16ix0yo/megalist_sg_gigs_raves_concerts_f1_edition_15_28/
+# 13 Oct 2023, Fri
+- [BURNOUT SYNDROMES (JP)](https://www.sistic.com.sg/events/burnout1023), Gateway Theatre Bukit Merah, $108
+- [曾沛慈 Pets Tseng - This is Live! 之 Chill Hi 嗨音乐趴](https://www.sistic.com.sg/events/chill1023), Capitol Theatre City Hall, $88
+- [FRIDAY NIGHT FURY ft. Kelvin Tan of The Oddfellows, Iman's League, Sugar, SFX, Haal, Vitriol, Antiwira, Ruckuz ](https://www.instagram.com/p/Cx4i6KoS59k/), + DJ Prohibited Dancefloor ft Mari, Wonderfool vs  Ambient Energy (no poster),  Phil's Studio @ High Street Centre L3 (City hall), $20
+- Experimental: [NUS Electronic Music Lab - Four Blank Walls: Experiments in Sound ft Syafiq Halid](https://www.instagram.com/p/CySApA9hk0h/) - more info (https://eventbrite.sg/e/689104509137), NUS University Town, Stephen Riady Centre, Dance Studio **free**
+- SSO Gala: [Dvořák and Tchaikovsky – Hans Graf and Leonidas Kavakos](https://www.sistic.com.sg/events/230411SSO), Victoria Concert Hall, $25
+- Candlelight: [Chopin’s Best Works w/ pianist Churen Li](https://feverup.com/m/95674), The Arts House City Hall, left $68 
+- [Lunchtime Concerts at ACM: Chamber](https://acmltcchamber13oct.peatix.com/), Asian Civilisations Museum (city hall, raffles), **free**
+- Maduro Jazz: [An Evening of Standards & Blues with Pekka Pylkkanen-Weixiang Trio](https://eventbrite.com/e/726627832407), maduro @ sofitel sentosa, $45 drink credits
+- Jazz Loft: [Greg Lyons OG Quartet](https://eventbrite.sg/e/725925852767), Blu Jaz L3 @ bali ln (bugis), $22
 
-# Weekend Fest
-- 22 Sep - 1 Oct: [Singapore Design Week events](https://mothership.sg/2023/09/singapore-design-week-2023/), around bras basah to orchard area, official [webpage](https://sdw.designsingapore.org/)
-- 23-24 Sep: [Singapore Art Museum - A Weekend with SAM: closing of Hito Steyerl's Factory of the Sun, Lila + opening of Proof of Personhood: Identity and Authenticity in the Face of AI](https://www.singaporeartmuseum.sg/Art-Events/Exhibitions/Proof-of-Personhood), SAM tanjong pagar distripark, free for residents $5-$10 for rest.
-- 16-30 Sep: ARTS FEST - [The new SUBSTATION  - Re-connect/Centre/Converge festival](https://www.instagram.com/p/CwF8dnHSUps/), Parklane Shopping Centre Lvl 8 Big Carpark, $55 for full pass, check their [peatix link](https://peatix.com/group/8429/) for their upcoming events
-- 23-24 Sep: National Archives & Library: [All Things Singapore Festival](https://www.eventbrite.sg/cc/all-things-singapore-at-sg-2023-2329109), National Archives city hall, **free**
-- ... part of LOLA 23: [LOVE OUR LIBRARIES & ARCHIVES Month](https://www.eventbrite.sg/cc/2339409)
-- 27 Sep - 3rd Oct: [Clay Camp / Ceramics Singapore](https://www.instagram.com/p/CxZ08NYyatH/?), also features a closing party with [Syndicate (weish, kiat, intriguant, cherry, chan) ft Xue](https://www.instagram.com/p/CxDSzYNSJV6/)
-- 23-30 Sep: FILM FEST - [Buddhist Film Festival at Shaw Lido](https://thisfilmfest.com/2023/schedule/), Shaw Lido (Orchard), $15 / movie
-- 22-23 Sep: Movie Screening - [Marina Bay Carnival - Top Gun Maverick on 22nd, Jurassic World Dominion 23rd](https://www.instagram.com/p/Cw0F5YXAnfJ/), the lawn @ marina bay, **free**
-- 23-29 Sep: MID AUTUMN FST -  [Wan Qing Mid-Autumn Festival 2023 at Sun Yat Sen Memorial Hal](https://www.sysnmh.org.sg/en/whats-on/events/wan-qing-mid-autumn-festival-2023), Sun Yat Sen Nanyang Memorial Hall (balestier/novena/whampoa), free
+&nbsp;
 
 
+- Esplanade: [How Deep is Your Love by BRUA (pop)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/popaholic/how-deep-is-your-love), **free**
+- Esplanade: [Dominic Chin, RINES and Gail Belmonte - by Music & Drama Company SAF (pop, rock)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/popaholic/music-and-drama-company), **free**
+- Esplanade da:ns fest: [Lapse by Melati Suryodarmo](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/lapse), annexe, $20
+- Esplanade da:ns fest: [13 & 14 by TAO Dance Theater (CN)](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/13-and-14), `Till Sunday`, waterfront theatre, $30
+- Esplanade dance drama: [Singapore Flamenco Festival 2023: Reflections of Time Triple Bill by Flamenco Sin Fronteras , Luis de luis, Claudia la Debla, Miguel Lavi, David Caro](https://www.sistic.com.sg/events/flamenco1023), recital studio, $38
+- Esplanade participatory dance & AR: [Mali Bucha: Dance Offering by Kornkarn Rungsawang](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/mali-bucha-dance-offering), theatre studio, $24
 
-# Other Arts 
-- Till 24th Sep: [Now Is Not The Time - that lee kuan yew exhibition by x3d & daniel arsham](https://www.nowisnotthetime.sg/), 25 Pasir Panjang Road
-- 8-23 Sep: Theatre - [G\*D IS A WOMAN by wild rice](https://www.sistic.com.sg/events/woman0923), wild rice theatre @ Funan city hall, $25
-- 20-24 Sep: Theatre - [Measure for Measure: William Shakespeare - by The Stage Club](https://www.sistic.com.sg/events/measure0923), KC Arts Centre (robertson quay), $30
-- 22-24 Sep: Theatre -[Anthropocene by Vivian Quek](https://sg.bookmyshow.com/events/TWF20232)
-- 22-24 Sep: Theatre - [Caryl Churchill's  Love & Information by SMU Stageit](https://sg.bookmyshow.com/events/SMUAF235), drama centre @ national library (bugis), $19
-- 28 Sep - 7 Oct: Theatre - [Romeo & Juliet by Action to The World (UK)](https://www.sistic.com.sg/events/romeo1023?cid=abaproductions-hmrtb-romeo1023), victoria concert hall, $68
-- 22-23 Sep: Comedy - [Rajasekhar Mamidanna](https://www.eventbrite.sg/cc/rajasekhar-mamidanna-22nd-23rd-september-2023-2531429)
-- 24 Sep: Queer Comedy - [阿PAN - 望子成凤 Be Proud Of You](https://theprojector.sg/films-and-events/be-proud-of-you/), the projector golden mile tower, $30
-- 21 Sep - 8 Oct: Musical Theatre - [&Juliet by Max Martin](https://www.marinabaysands.com/entertainment/shows/juliet.html), marina bay sands, $68
-- 21-24 Sep: Kids - [The Smeds & The Smoos ](https://www.sistic.com.sg/events/smeds0922), Victoria Theatre, $38
-- 23 Sep: Kids [Wan Qing Mid-Autumn Festival 2023: Tales in Melodies: Teochew Songs & Rhymes Workshop 潮州歌谣工作坊](https://wqmaf23-teochewsongrhyme.peatix.com/), Sun Yat Sen Nanyang Memorial Hall (balestier), $10
-- 23 Sep: Tabletop Games - [Dungeons & Dragons w/The Legitimate Business](https://www.eventbrite.sg/e/678714151297?), Choa Chu Kang Library, **free RSVP**
-- 22 Sep: Comedy - [Vir Das: Mind Fool Tour in Singapore](https://esplanade.com/whats-on/2023/vir-das-mind-fool-tour-in-singapore), ESPLANADE, $88
-- 24 Sep: [MiaoDance Season 3 Ep 9 - Shao Xun x Lynn Tan - music improv & dance](https://instagram.com/p/CwsN02-SyNC/), TradeHub 21 Boon Lay, **$14**
-- 24 Sep: Artichoke Restaurant: [Still Not Dead dinner anniversary ft Kaye of DTW](https://instagram.com/p/CxCgBSsyN_a/), 161 Middle Rd, $130
-- 28-30 Sep: Lasalle: [Music Revue: Top Me Up](https://bjm100.lasalle.edu.sg/musical-revue-top-me-up/), LASALLE College McNally, donation 
-- 23 Sep: Walking Musical: [Katong Dreaming: A Musical Tour MATINEE](https://katongdreaming23sep23.peatix.com/), katong, 109-111 East Coast Road, $68
+&nbsp;
+ 
+- DJ, [MOSNTER BALL by Museum of Ice Cream x afterlife](https://www.instagram.com/p/Cx-QuEVhgaE/)
+- DJ, [Cherry Discotheque Presale Fri 13/10](https://eventbrite.sg/e/732943091517), Cherry Discotheque, $22.04, Presale Tickets for Cherry Discothequ
+- DJ, [This Is Heartbreak - Songs about your Ex ft THIEVVES of BRB/Disco Hue, DJ KRYS, CLAMMR](https://www.instagram.com/p/CxaOcyovTdV/), hard rock cafe orchard cuscaden, $25
+- DJ, [CULTURE Presents Retro Metro ft Djs Pin &Vira](https://culture-retro-metro-4.peatix.com/), Projector X No Spoilers Bar @ Cineleisure Orchard, $31
+-  DJ, [Halloween Costume DJ Party - Catfish Izakaya 3rd anniversary](https://eventbrite.sg/e/725978771047), Catfish Izakaya @ 5 Gemmill Ln (telok ayer cbd), **free**
+- DJ, [Rewind x Yang: Back to Old School RnB Flashback Friday ft Kidd Royale, Resty, Shai, MC Hund](https://eventbrite.com/e/721051222617), Yang Club Clarke Quay Blk A, $25
+- DJ, [Friday the 13th (bollywood, kollywood, top40s)](https://fridaythe13th.peatix.com/), dirty blonde @ suntec city L3 sky garden bar, **$10**
+- DJ, Club Hell: [Daddies in Hell](https://clubhell1310.peatix.com/), gay club @ 113 telok ayer st, $30
+- DJ, iki: [Latino Anthem (Reggaeton x Latin Pop)](https://eventbrite.sg/e/733290350177), club iki @ ikigai izakaya riverwalk (clarke quay), **$16**
+- DJ, CE LA VI: [DARK WHITE (bkk - Italo, acid, funk, soul)](https://www.celavi.com/en/singapore/event/sg-event-dark-white/), marina bay sands hotel rooftop bar-club, $38
+- DJ, HQ: [BLOODY MARY](https://eventbrite.sg/e/723820505617), headquarters techno-house club @ 66A boat quay, $36
+- DJ, [Chambord (FR) ft. LoBy ](https://eventbrite.com/e/733210180387), COL @ 1 Keong Saik (restaurant-bar) , $38, Pierre and Tim of French DJ and producer duo Chambord are swiftly taking the world by storm.
+- DJ, [Uncaged with Muttiah Ashnim (into the deep) and Christian Craken (BUL) - tech house vibe](https://eventbrite.sg/e/707304174827), GR.ID Mall Selegie B1, $70
+- DJ, ARK11: [Rave Republic](https://www.instagram.com/p/CyLENBjSCux/), new club at orchard central Level 11
+- DJ, [NESC x Thugshop pres. Breaka (UK bass, breakbeat, future garage)](https://eventbrite.sg/e/716778914027), tuff club @ 138 robinson rd cbd, $37
+- DJ, Marquee: [Laidback Luke and Maddix (edm)](https://marqueesingapore.com/event/marquee-presents-laidback-luke-and-maddix/), marquee nightclub @ MBS, 
+- DJ, Zouk: [PICKLE (tech house)](https://www.instagram.com/p/CxNXTzpyPnC/), zouk nightclubs clarke quay, starts $30
