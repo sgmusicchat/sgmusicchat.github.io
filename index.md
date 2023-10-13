@@ -32,7 +32,7 @@ Unfortunately I was quite busy this week so this is the temporary thread
 - DJ, Club Hell: [Daddies in Hell](https://clubhell1310.peatix.com/), gay club @ 113 telok ayer st, $30
 - DJ, iki: [Latino Anthem (Reggaeton x Latin Pop)](https://eventbrite.sg/e/733290350177), club iki @ ikigai izakaya riverwalk (clarke quay), **$16**
 - DJ, CE LA VI: [DARK WHITE (bkk - Italo, acid, funk, soul)](https://www.celavi.com/en/singapore/event/sg-event-dark-white/), marina bay sands hotel rooftop bar-club, $38
-- DJ, HQ: [BLOODY MARY](https://eventbrite.sg/e/723820505617), headquarters techno-house club @ 66A boat quay, $36
+- DJ, HQ: [BLOODY MARY (berlin, techno)](https://eventbrite.sg/e/723820505617), headquarters techno-house club @ 66A boat quay, $36
 - DJ, [Chambord (FR) ft. LoBy ](https://eventbrite.com/e/733210180387), COL @ 1 Keong Saik (restaurant-bar) , $38
 - DJ, [Uncaged with Muttiah Ashnim (into the deep) and Christian Craken (BUL) - tech house vibe](https://eventbrite.sg/e/707304174827), GR.ID Mall Selegie B1, $70
 - DJ, ARK11: [Rave Republic](https://www.instagram.com/p/CyLENBjSCux/), new club at orchard central Level 11
