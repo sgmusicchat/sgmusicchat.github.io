@@ -34,5 +34,5 @@
 - DJ, [Uncaged with Muttiah Ashnim (into the deep) and Christian Craken (BUL) - tech house vibe](https://eventbrite.sg/e/707304174827), GR.ID Mall Selegie B1, $70
 - DJ, ARK11: [Rave Republic](https://www.instagram.com/p/CyLENBjSCux/), new club at orchard central Level 11
 - DJ, [NESC x Thugshop pres. Breaka (UK bass, breakbeat, future garage)](https://eventbrite.sg/e/716778914027), tuff club @ 138 robinson rd cbd, $37
-- DJ, Marquee: [Laidback Luke and Maddix (edm)](https://marqueesingapore.com/event/marquee-presents-laidback-luke-and-maddix/), marquee nightclub @ MBS, 
+- DJ, Marquee: [Laidback Luke and Maddix (edm)](https://marqueesingapore.com/event/marquee-presents-laidback-luke-and-maddix/), marquee nightclub @ MBS, $45
 - DJ, Zouk: [PICKLE (tech house)](https://www.instagram.com/p/CxNXTzpyPnC/), zouk nightclubs clarke quay, starts $30
