@@ -21,8 +21,6 @@
 
 &nbsp;
  
-- DJ, [MOSNTER BALL by Museum of Ice Cream x afterlife](https://www.instagram.com/p/Cx-QuEVhgaE/)
-- DJ, [Cherry Discotheque Presale Fri 13/10](https://eventbrite.sg/e/732943091517), Cherry Discotheque, $22.04, Presale Tickets for Cherry Discothequ
 - DJ, [This Is Heartbreak - Songs about your Ex ft THIEVVES of BRB/Disco Hue, DJ KRYS, CLAMMR](https://www.instagram.com/p/CxaOcyovTdV/), hard rock cafe orchard cuscaden, $25
 - DJ, [CULTURE Presents Retro Metro ft Djs Pin &Vira](https://culture-retro-metro-4.peatix.com/), Projector X No Spoilers Bar @ Cineleisure Orchard, $31
 -  DJ, [Halloween Costume DJ Party - Catfish Izakaya 3rd anniversary](https://eventbrite.sg/e/725978771047), Catfish Izakaya @ 5 Gemmill Ln (telok ayer cbd), **free**
@@ -32,7 +30,7 @@
 - DJ, iki: [Latino Anthem (Reggaeton x Latin Pop)](https://eventbrite.sg/e/733290350177), club iki @ ikigai izakaya riverwalk (clarke quay), **$16**
 - DJ, CE LA VI: [DARK WHITE (bkk - Italo, acid, funk, soul)](https://www.celavi.com/en/singapore/event/sg-event-dark-white/), marina bay sands hotel rooftop bar-club, $38
 - DJ, HQ: [BLOODY MARY](https://eventbrite.sg/e/723820505617), headquarters techno-house club @ 66A boat quay, $36
-- DJ, [Chambord (FR) ft. LoBy ](https://eventbrite.com/e/733210180387), COL @ 1 Keong Saik (restaurant-bar) , $38, Pierre and Tim of French DJ and producer duo Chambord are swiftly taking the world by storm.
+- DJ, [Chambord (FR) ft. LoBy ](https://eventbrite.com/e/733210180387), COL @ 1 Keong Saik (restaurant-bar) , $38
 - DJ, [Uncaged with Muttiah Ashnim (into the deep) and Christian Craken (BUL) - tech house vibe](https://eventbrite.sg/e/707304174827), GR.ID Mall Selegie B1, $70
 - DJ, ARK11: [Rave Republic](https://www.instagram.com/p/CyLENBjSCux/), new club at orchard central Level 11
 - DJ, [NESC x Thugshop pres. Breaka (UK bass, breakbeat, future garage)](https://eventbrite.sg/e/716778914027), tuff club @ 138 robinson rd cbd, $37
