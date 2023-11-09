@@ -13,6 +13,9 @@
 - Esplanade Theatre: [Intercultural Theatre Institute - Fall & The Music Lovers – A Double Bill](https://esplanade.com/whats-on/2023/fall-and-the-music-lovers-a-double-bill), 
 - Esplanade Theatre: [Into the Woods by Pangdemonium Theatre Company](https://esplanade.com/whats-on/2023/into-the-woods), $35
 - Esplanade Theatre: [The Monkey King by Trend Education Foundation and Taiwan College of Performing Arts](https://esplanade.com/whats-on/2023/the-monkey-king), $38
+
+&nbsp;
+
 - SOTA: [IMPACT 2023- Zubir Said Tribute & Fundraiser (multidisciplinary)](https://ticketmaster.sg/activity/detail/23_impact2023), school of the arts theatre (dhoby ghaut/bencoolen), $25
 - Voices of Singapore Ladies choir: [Echoes from an Island - VSL Pre-Tour Recital](https://eventbrite.sg/e/743928639587), Church of Saints Peter & Paul @ 225A Queen Street, **free**
 - Nanyang Poly Guitar Club: [Songs of the Seasons](https://eventbrite.com/e/716756958357), Theatre for the Arts - Nanyang Polytechnic , **free**
