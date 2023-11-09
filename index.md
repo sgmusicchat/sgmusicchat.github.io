@@ -1,8 +1,8 @@
 # 10 Nov 2023, Fri
 - [YUNGBLUD](https://sistic.com.sg/events/yungblud1123), Capitol Theatre city hall, $98
 - [JESUS PIECE ft doldrey, dissect, agni (metalcore)](https://www.blacklistedproductions.com/event-details/jesus-piece-live-in-singapore), WE Livehouse @ Atrix Building 82 Lor 23 Geylang (bs. aljunied mrt), $49
+- [Glass Fest 2023 - Day 1 - Caracal,  Wellness In Mouth of Ditch, Bellied Star, Fxtrt, Bowden, Thy Howler, Toastybiskit's emo / psytrance DJ set)](https://www.instagram.com/p/CxHtHHpB1b7/), `Indie Alt Rock to metalcore mathcore vibe`, Phil's Studio @ High Street Centre L3 (city hall), **$20 or doors**
 - [We the Uncouth pres. Chill Wave - Terrestrea, Ctrl Chaos, Pathetic Ordinary, VAL](https://www.instagram.com/p/CzJCtGhBNkE/), `post-hardcore, easycore, acoustic vibe`, Song Lin Bldg @ 1 Syed Alwi Rd (jalan besar/lavender) L6, **$10**
-- [Glass Fest 2023 Day 1 - Caracal,  Wellness In Mouth of Ditch, Bellied Star, Fxtrt, Bowden, Thy Howler, Toastybiskit's emo / psytrance DJ set)](https://www.instagram.com/p/CxHtHHpB1b7/), `Indie Alt Rock to metalcore mathcore vibe`, Phil's Studio @ High Street Centre L3 (city hall), **$20 or doors**
 - Hiphop Rnb & Reggaeton Gig + DJ [REVAMP by Icy BP - Omar Kenobi, Syaz Smooth, Thambi Natta, Ray Martin, MF Bil, Mex JR, Acapslim ft Dj Hanif & SOS](https://www.instagram.com/p/CyqWjbshamA/), dirty blonde @ suntec city L3 sky garden bar, $30
 - Movies x Pink Floyd: [The Projector x Welcome to the Machine - Dark Side of the Rainbow (dark side of the moon LIVE along to Wizard of Oz & 2001: A Space Odyssey)](https://theprojector.sg/films-and-events/rainbow/), `DAY 1`, the projector @ golden mile tower, $40
 - [Ravage Records pres. Balberith 20th anniversary show (black metal)](https://www.instagram.com/p/CxVW5AyMZVn/), sale over though.
