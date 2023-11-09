@@ -46,3 +46,25 @@
 - DJ, [SKYFALL Royale with InterNations Expats Singapore](https://officialinternationssg101123.peatix.com/), At Skyfall Rooftop Bar - TRAVELODGE Harbourfront 50 Telok Blangah Rd, $31
 - DJ, [AFROGROOVE 20](https://afrofusionfriday5.peatix.com/), The Loft @ BQ 79a Boat Quay, **$16**
 
+# 11 Nov 2023, Sat
+- [DXS pres. Reign of Darkness Vol 3 - Where the Dead Gather, Murder by Ska, Scream the Silence, Infernal Grave, Intifadah](https://www.instagram.com/p/CyvJQx9B1vW/), `metalcore, deathcore, punk vibe` **$20**
+- [Saylah pres. Cravism x Maya Diegel (neo soul jazz pop)](https://www.instagram.com/p/Cyve4syBUPK/), Saylah studios @ Yi Guang Building 180 Paya Lebar Road, L11, $25
+- [Glass Fest 2023 Day 2 - Glassmouth, Tariot, Wellness In Mouth of Ditch (JP), Kachiku (JP), Noodle Brain, Vauxite, Circle Line Kid](https://www.instagram.com/p/CxHtHHpB1b7/), `Indie Alt Rock to metalcore mathcore vibe`, Phil's Studio @ High Street Centre L3 (city hall), **$20 or doors**
+- [Hearts in Harmony Fundraiser - Rangga Jones, Regina Song, Pacifica Music Academy - by Laselle College of the Arts for Singapore Cancer Society](https://www.instagram.com/p/CzNvPpoSj1W/?img_index=2), Laselle College Singapore Airlines Theatre @ 1 McNally Street (rochor mrt), minimum $35 donation
+- [SAF Music & Drama Company's 50th Anniversary ft. Jeremy Monteiro, Sezairi, Lullaboy, Yung Raja, Shigga Shay, Broadway Beng, Sheikh Haikel, Rosalyn Lee & More](https://www.instagram.com/p/CyxNyf-AKfY/), Victoria Concert Hall, **free for NSFs & NSMen & family members** 
+- Esplanade: [Blush – Supercrush ft Microchip terror & Curb (Album Launch) ](https://esplanade.com/whats-on/festivals-and-series/series/2023/mosaic-music-series/blush-supercrush-album-launch), $28
+- Esplanade: [AARCADE vs the Soundtracks of the Internet! ](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/soundtracks/aarcade-vs-the-soundtracks-of-the-internet), **free**
+- Esplanade: [The Best of Both Worlds by The Popsicals!](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/soundtracks/the-best-of-both-worlds), **free**
+- Esplanade: [Brahms190 by Chamber Music and Arts Singapore](https://esplanade.com/whats-on/2023/brahms190), $42
+- [漫步人生路演唱会 Reminisce the road of life concert ft Hugo Ng (吴岱融), Lin Yu (林雨), Jackson Teo (张仰兴 Hong Guorui (洪国锐), Li Rongde (李荣德) & more )](https://ticketmaster.sg/activity/detail/23_reminisce), ESPLANADE, $78
+- Improv 90s Boy-Girl Bands Musical [POP Group: An Improvised Musical by Les Musicables](https://popgroupthemusical.peatix.com/), the projector @ golden mile tower, [promo vid](https://www.instagram.com/p/CyyAm-5RCSW/), $30
+- Movies x Pink Floyd: [The Projector x Welcome to the Machine - Dark Side of the Rainbow (dark side of the moon LIVE along to Wizard of Oz & 2001: A Space Odyssey)](https://theprojector.sg/films-and-events/rainbow/), `DAY 2`, the projector @ golden mile tower, $40
+- SSO: [Butterfly Lovers Violin Concerto with Chloe Chua & Singapore Symphony Orchestra - Day 2](https://sistic.com.sg/events/230451VCH),  Victoria Concert Hall, **$15** 
+- [Kim Seng Wind Symphony x The Quattro pop band - 30th Anniversary](https://www.instagram.com/p/CzOlzGGyUjG/?), Kreta Ayer People's Theatre, **$15**
+- [New Gen Wind Symphony's Beautiful Tunes III (classical, pop, movies) at Taman Jurong](https://www.instagram.com/p/CzOXP0pSJ4Z/), Taman Jurong CC, **$8**
+- Cool Cats Jazz: [Gregg Arthur sings Tony Bennett - Last](https://feverup.com/m/141100), nco club @ 32 beach rd (esplanade), $38
+- Maduro Jazz: [Just Friends ft. Iman & Kenzo](https://eventbrite.com/e/737932926247), Maduro, Sofitel Singapore Sentosa, $38 drink credits
+- Jazz Loft: [Amanda Lee Swingtet](https://eventbrite.sg/e/736226050937), The Jazz Loft @ Blu Jaz, $22
+- [A Carnatic Violin Concert by Vidwan B U Ganesh Prasad](https://eventbrite.sg/e/749756711507), SIFAS Annexe, $22
+- Electronic, DJ & Experimental Karaoke gig: [SORRY NO CURE KTV Rave ft mervin wong, tzechar, gayrage, darren dubwise, baben shin](https://www.instagram.com/p/CydhAAoyiMd/), `Dnb, breakcore, K-Pop, Trance, Gaabber, KTV, Whatever`, fiveten bar @ 15 Neil Road, [tickets](https://sorrynocure01.peatix.com/) **$15 w drink**
+
