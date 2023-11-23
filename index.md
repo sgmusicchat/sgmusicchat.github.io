@@ -99,7 +99,6 @@
 - DJ, [BABY BOY vol 29: PANGINA HEALS in MARIAH'S (CAREY) FAIRIES](https://babyboy29.peatix.com/), hard rock cafe orchard cuscaden, LGBT, $25
 - With Drag, [RIOT! cum Baby Boy featuring Pangina Heals](https://riotcumbb231125.peatix.com/), $50 with baby boy
 - DJ, [Hazel's Guestlist @ Ark 11 - LOPEZ (Mainstream Big Room & Techno)](https://ark11guestlist.peatix.com/), ARK 11 Club @ Orchard Central Mall L11
-- DJ, [Pr]
 - DJ, Luxuria: [Group of Djs Asia x Your Party Daddy - Vibrante (Brazilian & Latin Festival) ft Live Percussion by Motus, DJs Christ Columbus, Flux, SLS](https://www.instagram.com/p/CzgFItCSuXc/), Luxuria (aka Club Di Lusso) @ Tekka Place Mall Rooftop (rochor)
 - DJ, Offtrack: [Muto b2b toppings (ice cream sundays)](https://www.instagram.com/p/Cy0SrjMyfBE/), bs hong lim park, music gastro bar
 - DJ, 🏖 [Voco Orchard Splash Pool Party ft DJ KRIO](https://eventbrite.com/e/755905001207), voco Orchard Singapore (former Hilton), $27
@@ -171,7 +170,7 @@
 
 
 # 29 Nov 2023, Wed
-- [yama  1st ASIA TOUR "thanks for waiting" (JPN j-pop)](https://ticketmaster.sg/activity/detail/23_yama), Capitol Theatre City Hall, &88
+- [yama 1st ASIA TOUR "thanks for waiting" (JPN j-pop)](https://ticketmaster.sg/activity/detail/23_yama), Capitol Theatre City Hall, &88
 - [Esplanade Presents , Mosaic Music Series – Charlie Burg and the Blue Wave Band (USA)](https://esplanade.com/whats-on/festivals-and-series/series/2023/mosaic-music-series/charlie-burg-and-the-blue-wave-band), Esplanade Concert Hall, $55
 - [KPOP: Jinhwa](https://tapestry23-kpop-jinhwa.peatix.com/), Temasek Convention Centre  @ 21 Tampines Avenue 1
 - [Rhapsodic Stories: Exhibition](https://exhibition-sax.peatix.com/), At Singapore Chinese Cultural Centre Zhong Sheng Jian Recital Studio L6
