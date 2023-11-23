@@ -170,7 +170,7 @@
 
 
 # 29 Nov 2023, Wed
-- [yama 1st ASIA TOUR "thanks for waiting" (JPN j-pop)](https://ticketmaster.sg/activity/detail/23_yama), Capitol Theatre City Hall, &88
+- [yama 1st ASIA TOUR "thanks for waiting" (JPN j-pop)](https://ticketmaster.sg/activity/detail/23_yama), Capitol Theatre City Hall, $88
 - [Esplanade Presents , Mosaic Music Series – Charlie Burg and the Blue Wave Band (USA)](https://esplanade.com/whats-on/festivals-and-series/series/2023/mosaic-music-series/charlie-burg-and-the-blue-wave-band), Esplanade Concert Hall, $55
 - [KPOP: Jinhwa](https://tapestry23-kpop-jinhwa.peatix.com/), Temasek Convention Centre  @ 21 Tampines Avenue 1
 - [Rhapsodic Stories: Exhibition](https://exhibition-sax.peatix.com/), At Singapore Chinese Cultural Centre Zhong Sheng Jian Recital Studio L6
