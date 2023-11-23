@@ -151,7 +151,7 @@
 
 # 27 Nov 2023, Mon
 - [MANESKIN](https://sistic.com.sg/events/maneskin1123), Singapore Expo Hall 1, $158
-- [d4vd - Petals to Thorns Tour 2023)](https://ticketmaster.sg/activity/detail/23_d4vd), Capitol Theatre, $88
+- [d4vd - Petals to Thorns Tour 2023](https://ticketmaster.sg/activity/detail/23_d4vd), Capitol Theatre, $88
 - [Disney Princess – The Broadway Concert (Day 2)](https://sistic.com.sg/events/disney1123), ESPLANADE, S$78
 - Esplanade: [JLPiano's Cinematic Jukebox by Sean Chen (JLPiano)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/soundtracks/jlpianos-cinematic-jukebox), **free**
 - Esplanade: [Asian Intercultural Conference 2023 ](https://esplanade.com/whats-on/2023/asian-intercultural-conference-2023), 
@@ -177,4 +177,5 @@
 - [Middle School Attached to China Conservatory of Music. - NAFA Collaborative Concert](https://eventbrite.sg/e/760260618977), Lee Foundation Theatre, **free**
 - Esplanade: [Crayon.OTAKU LIVE 「クレヨン・オタク」ライブ！ (J-Pop, Ani-Song)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/soundtracks/crayonotaku-live), **free**
 - Jazz Loft: [Legacy Series pres Sinclair Ang & His Rhythmakers (jazz & dance, swing)](https://eventbrite.sg/e/748287326537), Blu Jaz L3 @ bali ln (bugis), $24
+- Candlelight: [Taylor Swift's Best Hits by pianist Gabriel Hoe ](https://feverup.com/m/110306), CHIJMES city hall, left $93
 - DJ, [Entity Presents : Allure 2.0 ( Ladies Night )](https://eventbrite.com/e/758897241077), ARK11
