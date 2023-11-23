@@ -46,7 +46,7 @@
 -  24-25 NOV Dance: [Foreign Bodies Production: Aetherium Day 1](https://fbaetheriumday1.peatix.com/), Nanyang Polytechnic @ Ang Mo Kio, $10,
 - 24-25 NOV Experiential Play : [Volumes V: Wei/Ward Day 1](https://weiward.peatix.com/), ITE College Central @ Ang Mo Kio, $15, 
 - 24 Nov - 3rd DEC: Contemporary Dance: [T.H.E Dance Company 15th Anniversary - Searching Blue](https://the15searching.peatix.com/), Goodman Arts Centre @ Mountbatten/Stadium, 24 Nov till 3rd DEC
-- 25 Nov: - [一人一故事演出  One-person play《火车驶向云外》 On A Train Amidst The Clouds](https://imi-show-onatrainamidsttheclouds.peatix.com/), Stamford Arts Centre @ 155 Waterloo Street (bugis), $18
+- 25 Nov: [一人一故事演出  One-person play 《火车驶向云外》 On A Train Amidst The Clouds](https://imi-show-onatrainamidsttheclouds.peatix.com/), Stamford Arts Centre @ 155 Waterloo Street (bugis), $18
 - Esplanade: [FL/OW Dance Workshops (Adults & Preschoolers) by Various studios](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/flow-dance-workshops-adults-and-preschoolers), [(Adults & Youth)](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/flow-dance-workshops-adults-and-youth),  [Adults & Kids](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/flow-dance-workshops-adults-and-kids), 
 
 # 25 Nov 2023, Sat
@@ -171,11 +171,11 @@
 
 
 # 29 Nov 2023, Wed
-- [yama 1st ASIA TOUR "thanks for waiting" @ Capitol Theatre](https://ticketmaster.sg/activity/detail/23_yama), Capitol Theatre
-- [Esplanade Presents , Mosaic Music Series – Charlie Burg and the Blue Wave Band (USA)](https://esplanade.com/whats-on/festivals-and-series/series/2023/mosaic-music-series/charlie-burg-and-the-blue-wave-band), Esplanade Concert Hall, S$55
+- [yama  1st ASIA TOUR "thanks for waiting" (JPN j-pop)](https://ticketmaster.sg/activity/detail/23_yama), Capitol Theatre City Hall, &88
+- [Esplanade Presents , Mosaic Music Series – Charlie Burg and the Blue Wave Band (USA)](https://esplanade.com/whats-on/festivals-and-series/series/2023/mosaic-music-series/charlie-burg-and-the-blue-wave-band), Esplanade Concert Hall, $55
 - [KPOP: Jinhwa](https://tapestry23-kpop-jinhwa.peatix.com/), Temasek Convention Centre  @ 21 Tampines Avenue 1
 - [Rhapsodic Stories: Exhibition](https://exhibition-sax.peatix.com/), At Singapore Chinese Cultural Centre Zhong Sheng Jian Recital Studio L6
 - [Middle School Attached to China Conservatory of Music. - NAFA Collaborative Concert](https://eventbrite.sg/e/760260618977), Lee Foundation Theatre, **free**
 - Esplanade: [Crayon.OTAKU LIVE 「クレヨン・オタク」ライブ！ (J-Pop, Ani-Song)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/soundtracks/crayonotaku-live), **free**
 - Jazz Loft: [Legacy Series pres Sinclair Ang & His Rhythmakers (jazz & dance, swing)](https://eventbrite.sg/e/748287326537), Blu Jaz L3 @ bali ln (bugis), $24
-- DJ, [Entity Presents : Allure 2.0 ( Ladies Night )](https://eventbrite.com/e/758897241077), ARK11,
+- DJ, [Entity Presents : Allure 2.0 ( Ladies Night )](https://eventbrite.com/e/758897241077), ARK11
