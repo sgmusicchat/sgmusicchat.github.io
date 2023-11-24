@@ -156,11 +156,11 @@ Note: List goes up to 29 Nov (Wed) due to time constraints, more will be added p
 
 &nbsp;
 
-- DJ, [Golden Mix - The Official AFASG23 Afterparty (The Anison J-Music Rave 18+)](https://www.instagram.com/p/Cz0r2o1hWmn/), Xclusiv (former Prism Club) @ marina square, $37
+- DJ, [Golden Mix - The Official AFASG23 Afterparty (The Anison J-Music Anikura Rave 18+)](https://www.instagram.com/p/Cz0r2o1hWmn/), Xclusiv (former Prism Club) @ marina square, $35
 - DJ, Lunar: [Club Lunar 1st Anniversary (asian style club)](https://www.instagram.com/p/CzLUqUsOkd1/), club lunar @ Orchard Plaza Lvl 4, 150 Orchard Rd
 - DJ, [Afro Heat 3.0 @ Lime House](https://afroheatvol3.peatix.com/), At Lime House Jiak Chuan 2 Jiak Chuan Road
 - DJ, Potato Head Rooftop: [Sun Down Circle - AKA Sounds, James Selva, Raaj, Weatherman](https://www.instagram.com/p/CztCzzLgHli/), 36 Keong Saik Rd, bistro bar, **free**
-- [The Net(work) Party - Fundraiser for Nets Retrieval](https://eventbrite.sg/e/746904299867), Chimi's Marina Bay @ 1 Marina Boulevard , $85 [see today article](https://www.todayonline.com/singapore/singaporean-fundraiser-ghost-nets-marine-life-bali-diving-2307876), $15
+- [The Net(work) Party - Fundraiser for Nets Retrieval](https://eventbrite.sg/e/746904299867), Chimi's Marina Bay @ 1 Marina Boulevard , $85 [see today article](https://www.todayonline.com/singapore/singaporean-fundraiser-ghost-nets-marine-life-bali-diving-2307876)
 
 
 
