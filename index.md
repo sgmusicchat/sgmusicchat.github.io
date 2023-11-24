@@ -51,7 +51,7 @@ Note: List goes up to 29 Nov (Wed) due to time constraints, more will be added p
 - 24 Nov - 3rd DEC: Contemporary Dance: [T.H.E Dance Company 15th Anniversary - Searching Blue](https://the15searching.peatix.com/), Goodman Arts Centre @ Mountbatten/Stadium, 24 Nov till 3rd DEC
 - 25 Nov: [一人一故事演出  One-person play 《火车驶向云外》 On A Train Amidst The Clouds](https://imi-show-onatrainamidsttheclouds.peatix.com/), Stamford Arts Centre @ 155 Waterloo Street (bugis), $18
 - Esplanade: [FL/OW Dance Workshops (Adults & Preschoolers) by Various studios](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/flow-dance-workshops-adults-and-preschoolers), [(Adults & Youth)](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/flow-dance-workshops-adults-and-youth),  [Adults & Kids](https://esplanade.com/whats-on/festivals-and-series/series/dans-focus/events/flow-dance-workshops-adults-and-kids), 
-- Singapore's Writers Festival 25 NOV: [LAT (the MY cartoonist)](https://www.singaporewritersfestival.com/programme-details-2023/lecture/festival-keynote-talk-lat), festival pass
+- Singapore's Writers Festival Till 26 Nov: [Come see the full site](https://www.singaporewritersfestival.com/home)
 - Singapore's Writers Festival 25 NOV: [JUDITH BUTLER Keynote](https://www.singaporewritersfestival.com/programme-details-2023/lecture/festival-keynote-talk-judith-butler), $20 soldout
 
 # 25 Nov 2023, Sat - Esplanade's [Kalaa Utsavam](https://www.esplanade.com/whats-on/festivals-and-series/festivals/2023/kalaa-utsavam/programmes) ends Sunday
