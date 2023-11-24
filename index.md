@@ -12,7 +12,9 @@ Note: List goes up to 29 Nov (Wed) due to time constraints, more will be added p
 - Jazz Loft: [PROMISE by Rick Smith sextet - classical textures and jazz (vocal, cello, violin, bass, violin, perc)](https://www.eventbrite.sg/e/748282732797), Blu Jaz L3 @ bali ln (bugis), $24
 - [Launch of Black Hole Records - After Hours @ Second Story](https://eventbrite.sg/e/760958907577), Peace Centre @ 1 Sophia Rd (selegie/bencoolen), **free**
 - [SingLit's Open Mic Night: A Stanza for You and Me (poetry prose etc)](https://stanzaforyouandme.peatix.com/), Wisma Atria, L4 @ Orchard, $10
+- `*` SSO: [Chopin and Beethoven - Bruce Liu and Jukka-Pekka Saraste with Singapore Symphony Orchestra (Day 2)](https://sistic.com.sg/events/230471SSO), Victoria Concert Hall, $15
 
+  
 &nbsp; 
 
 - Esplanade Kalaa Utsavam (KU) Comedy: [KUMAR spills the tea: The Great Indian Mix](https://esplanade.com/whats-on/festivals-and-series/festivals/2023/kalaa-utsavam/programmes/the-great-indian-mix-kumar-spills-the-tea), $45
