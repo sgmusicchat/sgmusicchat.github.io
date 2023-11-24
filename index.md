@@ -1,4 +1,4 @@
-[# 24 Nov 2023, Fri - [Anime Festival Asia (AFA) Weekend](https://animefestival.asia)
+# 24 Nov 2023, Fri - [Anime Festival Asia (AFA) Weekend](https://animefestival.asia)
 
 - [ALVVAYS ft Sobs](https://eventbrite.sg/e/675358755217), capitol theatre city hall, $98
 - [AFA x I LOVE ANISONG Showcase - ASTERISM, May'n, NANO, Survive Said the Prophet, Tatsuya Kitani  (JPN), Liyuu (CN)](https://www.instagram.com/p/CxVpdUSxJVg/), Suntec City Convention Halls, $158 per showcase day, includes normal admission worth $38 [Anime Fest tickets](https://animefestival.asia/afa23/ticketing/)
