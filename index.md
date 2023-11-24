@@ -147,7 +147,7 @@ Note: List goes up to 29 Nov (Wed) due to time constraints, more will be added p
 - SWF: [Hip Hop Conversation with Jeff Chang, Masia One, Akeem Jahat - Reshaping the World and Language](https://www.singaporewritersfestival.com/programme-details-2023/conversations/hip-hop-reshaping-the-world-and-language), festival pass
 - SWF: [Meet the Authors: Susan Rogers (main record producer engineer of Prince, also others eg barenaked ladies, david byrne )](https://www.singaporewritersfestival.com/programme-details-2023/meet-the-author/susan-rogers-what-the-music-you-love-says-about-you), festival pass
 - SWF: [Young Punks: The Etymology of 'Punk' as Subgenre - victor ocampo, amber chen, arkady martine](https://www.singaporewritersfestival.com/programme-details-2023/conversations/young-punks-the-etymology-of-punk-as-subgenre), festival pass
-	- PRE MOVIE SCREENING: [MARS EXPRESS (animated movie, French Film Festival 2023)](https://www.voilah.sg/french-film-festival-2023/films/mars-express/), the projector, $15
+	- 25th NOV (SAT) PRE MOVIE SCREENING: [MARS EXPRESS (animated movie, French Film Festival 2023)](https://www.voilah.sg/french-film-festival-2023/films/mars-express/), the projector, $15
 - SWF: [Festival Community Karaoke](https://www.singaporewritersfestival.com/programme-details-2023/performance-music/festival-community-karaoke),  arts house lawn, **free**
 - SWF:[RESCHEDULED Bgourd Fresh Raps: Create Your Own Hip-Hop Alter Ego with BGourd (kid friendly)](https://www.singaporewritersfestival.com/programme-details-2023/experiential-participatory/fresh-raps-create-your-own-hip-hop-alter-ego-with-bgourd), The Arts House, **free RSVP**
 
