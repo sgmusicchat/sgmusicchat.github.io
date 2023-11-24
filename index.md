@@ -73,6 +73,7 @@ Note: List goes up to 29 Nov (Wed) due to time constraints, more will be added p
 - Jazz Loft: [BLOODSPORTS Improvisation - Tim O'Dwyer, Oliver Von Essen, Darren Moore](https://eventbrite.sg/e/740617556047), Blu Jaz L3 @ bali ln (bugis), $24
 - Singapore Writer's Festival (SWF) Music: [Dikir Jam at night](https://www.singaporewritersfestival.com/programme-details-2023/performance-music/dikir-jam-performance), arts house lawn, **free**
 - Timbre Eastside is Closing: [SuperSonic Goes Retro x Rock Countdown x The Vibes ft Afwan](https://www.instagram.com/p/CzcwB5DSVWc/), Singapore Expo Music Food Court Beer Garden , **free**
+- `*` SCO: [Singapore Chinese Orchestra - Dream Beyond concert](https://www.instagram.com/p/CzvjYSwxBDN/), SCO Concert Hall @ 7 Shenton Way, **free RSVP**  
 
 &nbsp;
 
