@@ -5,7 +5,7 @@ Note: You are now reading an early release
 - [Bards of Neverland: A DIFFERENT classical & chamber concert (max richter, schnittke, mendelssohn, pucha & david loke original)](https://www.instagram.com/p/CzfowKlyyy8/), @ Pasir Panjang Power Station (labrador park), [tix 🎟](https://www.klook.com/en-SG/activity/94785-different-by-bards-of-neverland/) $58 or student discount
 - Sentosa's Jazz By The Cove: [Opening Night - Sheila Majid (MY),  Jeremy Monteiro & Alberto Marsico (IT), Junji Delfino (PH)](https://www.sentosa.com.sg/en/things-to-do/events/jazzbythecove/), Sentosa Cove Village, **free**
 - [Bill Bailey's Thoughtifier (UK musical comedian NC16)](https://sistic.com.sg/events/bailey1223), NUS university cultural centre, $98
-- [Firstblood & Villainy pres Keep It Real, Defy, Kenya (IDN) ft Wreckonize, destiny, constitution](https://www.instagram.com/p/CzBbA8BheFX/), `hard punk gig`, WE Livehouse @ Atrix Building 82 Lor 23 Geylang (bs. aljunied mrt), $55
+- [Firstblood & Villainy pres Keep It Real, Defy, Kenya (IDN) ft Wreckonize, destiny, constitution](https://www.instagram.com/p/CzBbA8BheFX/), `hard punk beatdown gig`, WE Livehouse @ Atrix Building 82 Lor 23 Geylang (bs. aljunied mrt), $55
 - [UR FATHER GIG by Cruz Hill Records ft Off-topic, Bandquet Rejects, Gothnoose, 4 Goodbyes, Last Minute Sarco](https://www.instagram.com/p/Cz5SpV0Re4C/), `from alt rock, post-hardcore to indie pop`, 123 kaki bukit ave 1, **$20**
 - [Synth commune Singapore Open Jam @ Peace Centre](https://www.instagram.com/p/C0iB2QbB_Ks/), Peace Centre L2 at 1 Sophia Rd (selegie, bencoolen), **free**
 - Singpost Centre: [Christmas Musicbox -  Sherman Zhuo & Esther Lo](https://www.instagram.com/p/C0jYWudyRMi/), singpost centre shopping mall @ paya lebar mrt, **free**
