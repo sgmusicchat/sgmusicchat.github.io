@@ -128,7 +128,7 @@ Note: You are now reading an early release
 
 
 # 17 Dec 2023, Sun
-- [THE WYNNERS 温拿乐队 : Farewell with LOVE 【情不变说再见】(HK cantopop band)]https://ticketmaster.sg/activity/detail/23_thewynners), Marina Bay Sands Grand Ballroom, $168 
+- [THE WYNNERS 温拿乐队 : Farewell with LOVE 【情不变说再见】(HK cantopop band)](https://ticketmaster.sg/activity/detail/23_thewynners), Marina Bay Sands Grand Ballroom, $168 
 - [REPVBLIK (Indon Rock & pop)](https://sistic.com.sg/events/rep1123), The Theatre at Mediacorp, $58
 - [THUNDER FROM DOWN UNDER GIRLS' NIGHT OUTBACK (R18+ Male Dance Revue - competes with Magic Mike & Chippendale)](https://sistic.com.sg/events/thunder1223), Sentosa Resorts World Convention Centre $128
 - Gardens By The Bay free concerts - [Celebrate YOUth! Electric Garden Hip Hop - ALYPH, Fariz Jabba, Abangsapau x Cosmic Owls, Tengy, Zushan, 555 Beatbox](https://www.gardensbythebay.com.sg/en/things-to-do/calendar-of-events/celebrate-youth-electric-garden.html), Gardens by the Bay Silver Garden, **free**
