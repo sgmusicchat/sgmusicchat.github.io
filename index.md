@@ -23,6 +23,7 @@
 -  `*` DJ, Lunar: [DJ Alyshia (TW)](https://www.instagram.com/p/C0-9t2aS1ZX/), Orhcard Plaza L4 (somerset), asian style club
 -  `*` DJ, ARK 11: [GLHF SPACE BASS  ft. Kasho, Highness, Raydxn, Ez.rawr & Miggy T.](https://www.instagram.com/p/C0_IYBFyHa6/), ARK 11 Club @ Orchard Central Mall L11. [tix 🎟](https://glhfspacebass.peatix.com) **$20**
 - `*` [BTS Monuments: Beyond The Star Special Launch at projector x no spoilers](https://www.eventbrite.sg/e/774202449367), Projector X Golden Village No Spoilers Bar @ Cineleisure Orchard, **free**
+- `*` [Raga Jam at CŪN Peace Centre - Experimental Music x Free Movement - George Chua, WWHATISSLEEP, rudi0s rudi osman, Irving Paul Pereira](https://www.instagram.com/p/CzolBS0SZO4/), peace centre selegie (dhoby/bencoolen), $5
 
 
 # 21 Dec 2023, Thu
