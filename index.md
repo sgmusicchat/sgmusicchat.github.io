@@ -30,4 +30,3 @@
 - DJ, Offtrack: [Arun R (HK, mixmag asia)](https://instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
 
 I am on telegram: search sg music chat or visit t.me/sgmusicchat
-](https://reddit.com/r/singaporemusicchat/comments/18deq93/megalist_sg_raves_concerts_gigs_pre_xmas_dec_8_21/)https://reddit.com/r/singaporemusicchat/comments/18deq93/megalist_sg_raves_concerts_gigs_pre_xmas_dec_8_21/
