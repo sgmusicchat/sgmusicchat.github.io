@@ -17,7 +17,6 @@
 - Cool Cats Jazz: [Chok Kerong Trio](https://feverup.com/m/129097), nco club @ 32 beach rd (esplanade), $30
 - Esplanade: [CHIJ Our Lady Queen of Peace Chorale ](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/chij-our-lady-queen-of-peace-chorale), **free**
 - [Groovaloof: Mosaic EP Launch (pop jazz-funk rnb) with Republic Poly Y3 Sonic Arts Students](https://instagram.com/p/C0jRQI6Bd9e/), Republic Polytechnic (woodlands north),  **free**
-- Timbre One-North [Now & Then: The Beatles Tribute by the Day Trippers - Part 2](https://instagram.com/p/C0fxtHoSHgn/), Timbre+ One-North Music Food Court / Beer Garden @ 73A Ayer Rajah (one-north), **free**
 - DJ, Moonstone: [Girl Dinner - Ape's & Xtie's  Cunty Xmas Hyper Bops](https://instagram.com/p/C0gwV1OSUzz/), Moonstone BAR @ 103 Amoy St, bar/free
 - `*` DJ, Potato Head: [Suren (rnb hiphop night)](https://www.instagram.com/p/C0OaDy7Sh9J/), 36 Keong Saik Rd, bistro speakeasy bar
 -  `*` DJ, Lunar: [DJ Alyshia (TW)](https://www.instagram.com/p/C0-9t2aS1ZX/), Orhcard Plaza L4 (somerset), asian style club
