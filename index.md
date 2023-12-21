@@ -118,4 +118,49 @@
 - DJ, Marquee: [DASH BERLIN (trance, progressive house)](https://marqueesingapore.com/event/marquee-presents-dash-berlin-2/), marquee club @ marina bay sands shoppes, $45, students $20
 
 
+# Non Music Random Weekend
+- Till 1st Jan: [Gardens by the Bay Christmas Wonderland Market & Fairground](https://www.gardensbythebay.com.sg/en/things-to-do/calendar-of-events/christmas-wonderland-2023.html), $10
+- Till 1st Jan: [Gardens by the Bay Poinsettia Wishes - A Nordic Christmas Adventure](https://www.gardensbythebay.com.sg/en/things-to-do/calendar-of-events/poinsettia-wishes-2023.html), $12 onwards
+- [Ice Magic: Winter Wonderland](https://sistic.com.sg/events/icemagicsg2023), Sat, 9 Dec 2023 - Sun, 21 Jan 2024, Bayfront Event Space, $19 onwards
+- [Immersive Disney Animation](https://sistic.com.sg/events/disneyanimation0224), Sat, 18 Nov - 25 Feb 2024, Sands Theatre at Marina Bay Sands, $33 onwards
+- 31 Dec: [ArkKnights NYE Countdown](https://www.instagram.com/p/C0telvUB4WQ/), 21A Jalan Besar, free
+- 25th Dec: [Christmas Wonderland at Luxuria](https://eventbrite.sg/e/779319464497), Luxuria (aka Club Di Lusso) @ Tekka Place Mall Rooftop (rochor),**free**
+- 23 Dec: [GRIT ASIA 3x3 Basketball (TW vs SG) and Music Fiesta - Live Band Performance by Psquaresg](https://www.instagram.com/p/C0CKaQoSeZg/), Our Tampines Hub Sports Hall, [tix 🎟](https://sistic.com.sg/events/grit1223) $16
+- 23 Dec: `THEATRE Final Show` [Snow White & the Seven Dwarfs](https://sistic.com.sg/events/snow1223), The Ngee Ann Kongsi Theatre @ Wild Rice Funan, $25
+
+# 25 Dec 2023, Mon
+
+- Esplanade: [Jazzin’ Around the Christmas Tree by Dua Empat (IDN jazzy guitar duo & vocalist)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/dua-empat-jazzin-around-the-christmas-tree), **free**
+- Esplanade: [Summertimes Big Band ](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/summertimes-big-band), , outdoor, **free**
+
+# 26 Dec 2023, Tue
+
+- Esplanade: [It's The Most Wonderful Time of The Year by AYME String Quartet](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/its-the-most-wonderful-time-of-the-year), **free**
+- Blu Jaz: [Tuesdays Joyspring Jazz Jam!](https://eventbrite.sg/e/771464339607), Blu Jaz , Bali Lane, **free**
+- DJ, Lion Brewery: [Boxing Day Bash - with DJs from ELEMENT](https://www.instagram.com/p/C0_G2L5AsUJ/), BrewPub @ 36 Club St (chinatown)
+
+
+
+# 27 Dec 2023, Wed
+- DJ, [LTJ BUKEM (UK atmospheric dnb legend)  for Kings of Bass 011](https://www.instagram.com/p/CzxMV9dSpeZ/), MDLR club @ 62 cecil street (cbd), [tix 🎟](https://eventbrite.sg/e/761232355467) $35
+- [SCCC Dialect Concert - Happy Sing Along 欢喜来唱歌](https://ticketmaster.sg/activity/detail/23_happysccc), Singapore Chinese Cultural Centre Auditorium @ 1 Straits Blvd (shenton way), $4
+- [HONGJOIN - Life is Soup… release party](https://www.instagram.com/p/C1BTWI7rdrC/), `SG indie pop rock` simpleArte Gallery @ 27A Arab St (bugis) , [tix 🎟](https://eventbrite.sg/e/779442923767) **free RSVP**
+- Esplanade: [Ensemble Night - Kwanseop Shim and Soyoon Yoon Piano Duo Recital ](https://esplanade.com/whats-on/2023/ensemble-night-kwanseop-shim-and-soyoon-yoon-piano-duo-recital), 
+- Esplanade: [Soulful Strains: Richie x Norman by Richie El, Norman Yeo](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/soulful-strains-richie-x-norman), **free**
+- [TUNING IN: SOUNDSCAPES FOR MINDFULNESS - Violin + Crystal Bowls + Gongs by Xin Tong + Jiaqi (Guest Violinist)](https://peatix.com/event/3798013), SPACE2B @ 2B Stanley Street (telok ayer), %50
+- Jazz Loft: [Sinclair Ang & His Rhythmakers - open to dancers, swing](https://eventbrite.sg/e/771366115817), The Jazz Loft @ Blu Jaz, $24,
+- Cool Cats: [The Jazz Sessions with Michelle SGP](https://feverup.com/m/129097), nco club @ 32 beach rd (esplanade), $30
+- [G.J.Lee Ukulele Concert 鸡汤乌克丽丽演奏会](https://eventbrite.com/e/778717213147), One Punggol, **free**
+-  DJ, Potato Head: [SGAMO (ITA)](https://www.instagram.com/p/C0f-526A0vm/), 36 Keong Saik Rd, bistro speakeasy bar
+
+
+# 28 Dec 2023, Thu
+
+- Esplanade: [Reflections with Wayne Sandz (pop rock multi instrumentalist)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/reflections-with-wayne-sandz), **free**
+- Jazz Loft: [Boni De Souza Band (pianist composer)](https://eventbrite.sg/e/760248512767), Blu Jaz L3 @ bali ln (bugis), $24,
+- Cool Cats Jazz: [NICK ZAVIOR ft Jordan Wei Trio - Day 1](https://www.instagram.com/p/C0-oBu-SwiN/?img_index=2), nco club @ 32 beach rd (esplanade), [tix 🎟](https://feverup.com/m/141100) $38
+- DJ, Offtrack: [SGAMO (ITA drum & soul)](https://www.instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
+- DJ, [Horizons Vol. 2 Christmas - By Invite Only (bollywood, club hits)](https://www.instagram.com/p/C0l5BOBSOGx/), Bedok-Chai Chee Area, RSVP
+
+
 I am on telegram: search sg music chat or visit t.me/sgmusicchat
