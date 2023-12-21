@@ -15,14 +15,13 @@
 &nbsp; 
 
 - Comedy: [Dr Jason Leong & Friends (Douglas Lim, GB Labrador, Vivek Mahbubani, Anirban Dasgupta, Sharul Channa)](https://ticketmaster.sg/activity/detail/23_jasonfriends), ESPLANADE, $60
-- [AUPE Club's Year End Celebration 2023](https://eventbrite.com/e/775441946737), 295 Upper Paya Lebar Rd (bartley), $35,
-
 - Jazz Loft: [MOORE'S CODE - Darren Moore, Chok Kerong and Wei Xiang Tan @ The Jazz Loft](https://eventbrite.sg/e/765869796177), Blu Jaz L3 @ bali ln (bugis), $24
 - Maduro Jazz: [YULETIDE by Lía Trio & Lily Yuan - MORE TICKETS](https://eventbrite.com/e/776838493847), maduro @ sofitel sentosa, $38++ drink credits
 - Cool Cats Jazz: [The Christmas Show with Natasha Oong - Day 2](https://www.instagram.com/p/C0srGfRpBa5/), nco club @ 32 beach rd (esplanade), $38
 - Blu Jaz: [New Stream Brass Band](https://www.instagram.com/p/C0iztpdyqoZ/), Blu Jaz @ bali ln (bugis), **free/bar**
 - Great World: [A Capella Group Carolling](https://www.instagram.com/p/C0bHNkASQKh/), great world city atrium (great world mrt), free
 - `Kid Friendly Show`: [AWFULLY CHOCOLATE x Music For Life Music School - Live Christmas Music](https://www.instagram.com/p/C0TryXZAME-/), awfully chocolate bakery cafe @ 131 East Coast Rd (opp i12 katong)
+- [AUPE Club's Year End Celebration 2023](https://eventbrite.com/e/775441946737), 295 Upper Paya Lebar Rd (bartley), $35,
 - Candlelight: [Christmas - Love Actually, Home Alone & more with  Vocalise String Quartet](https://artshouselimited.sg/vtvch-whatson-details/music/candlelight-christmas-love-actually-home-alone-more), Victoria Concert Hall, $52 sold out
 
 &nbsp; 
@@ -93,6 +92,30 @@
 - DJ, Tipsy Unicorn: [Dannic (NED festival big room house)](https://www.instagram.com/p/C0RIVY-xn_L/), Tipsy Unicorn Beach Club @  36 Siloso Bch Walk (Sentosa), $25~
 - DJ, ZOUK: [GAMMER (UK hardcore, edm dubstep)](https://www.instagram.com/p/C0tY-2As-36/), zouk club clarke quay, $45
 - DJ, [Unmute Invites: PRISMER (FABRIC, IND-UK house techno leftfield breaks jungle)](https://www.instagram.com/p/C0TfFnJSGj0/), tuff club @ 138 robinson rd cbd, [tix 🎟](https://eventbrite.sg/e/769606733457) $30
+
+# 24 Dec 2023, Sun
+- Gardens by the Bay: [Celebrate Youth Festival Day 5 last URBAN: BENJAMIN KHENG ft ITE show choir, DJ Collectives: REVELRY, NUS Synq ft dj raven, SMU metaphyiscal ft DJ Lopez](https://www.gardensbythebay.com.sg/en/things-to-do/calendar-of-events/celebrate-youth-electric-garden/pop.html), silver garden @ gardens by the bay, **free**
+- [Real Major Bass pres. UPRISING.SG Chinese Hip Hop Night ft 83Decay, 5fiveE, LeslieL](https://eventbrite.sg/e/771637306957),  WE Livehouse @ Atrix Building 82 Lor 23 Geylang (bs. aljunied mrt), $25
+- [Festival Winds 2023: Gala Concert by Band Directors’ Association](https://www.instagram.com/p/C051kTpRXAv/), ESPLANADE, $25
+- Party: [JuGe Christmas Eve Special - Zach, Gerld, Michelle & Her Boys (live band)](https://www.instagram.com/p/C0uN4MXtDY6/), JuGe @ 39 Carpenter St L5 (boat quay)
+- Esplanade: [Jingle Bell Jams by Oompah Beats](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/jingle-bell-jams), **free**
+- Esplanade: [Jazzin’ Around the Christmas Tree by Dua Empat (IDN)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/dua-empat-jazzin-around-the-christmas-tree), concourse,**free**
+- Esplanade: [Sharik Hasan & Friends for Christmas (US IND SG JAZZ, soul piano) ](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/sharik-hasan-and-friends), outdoor **free**
+
+&nbsp; 
+
+- DJ,  [EMONIGHTSG: Midnight Mosh (alternative 00s - nu-metal to pop punk and emo) - DJs THEBRYANSTATE, WALIMAN, AMELIACHENANDLER](https://www.instagram.com/p/C01PwbLxFXV/), hard rock cafe orchard cuscaden,  [tix 🎟](https://midnightmosh2023.peatix.com/), **$20**
+- DJ, Potato Head Rooftop: [100% Afrobeats with PRAV, SWTLKR, SHAHAN](https://www.instagram.com/p/C01AMGaSrBN/), 36 Keong Saik Rd, bistro bar, free/bar
+- DJ, ARK11: [Entity presents : Volume 6 (Christmas Eve) with DJ Moxide](https://www.instagram.com/p/C1BtktSSjgz/), ARK 11 Club @ Orchard Central Mall L11, [tix 🎟](https://eventbrite.com/e/778878545697) $22
+- DJ, [revelry: TECHNO Never Dies Xmas Eve Special](https://eventbrite.sg/e/775688243417), club iki @ ikigai izakaya riverwalk (clarke quay), $27
+- DJ, High House: [XMAS EVE - Zushan, Andrew T & The Professor](https://www.instagram.com/p/C1EokioyrDb/), New Lounge @ 1 Raffles Place Roof (old 1-altitude), $38
+- DJ, Drip Orchard: [Christmas Workshop Weekender Christmas Party (top 40s, edm, hard, hiphop](https://www.instagram.com/p/C0yy_eyvxHf/), drip club @ 100 Orchard Rd Concorde Hotel
+- DJ, Hyper: [HYPERSPACE JINGLE BALL AT YANG X'mas Eve Special - DJ PAT+ (Tha) X DJ YOSHAUN](https://hyper.yapsody.com/event/index/792247/hyperspace-jingle-ball-at-yang), `gay event`, Yang Club @ Clarke Quay, $68
+- DJ, Here Kitty Kitty: [DJ Tang](https://www.instagram.com/p/C0QlPRcyNRA/), Here Kitty Kitty Speakeasy & Cocktail Lounge @ Clarke Quay
+- DJ, ZOUK Capital: [Transfix pres Progressions XX Anniversary - DJs Yukun, Arif Rajab, Jong, Jonic and Liang (trance)](https://zoukclub.com/transfix/), zouk capital lounge at clarke quay, normally $50
+- DJ ZOUK: [Sin City Hip hop Night - Rattle, DJ Tang, DJ Pin](https://zoukclub.com/sin-city/), zouk club clarke quay, $35
+- DJ, ZOUK Phuture: [MYRNE ft. Aldrin, Hong ](https://www.instagram.com/p/C1EJ5bUyAV9/?img_index=3), zouk club clarke quay, [tix 🎟](https://zoukclub.com/phuture-presents/)$20
+- DJ, Marquee: [DASH BERLIN (trance, progressive house)](https://marqueesingapore.com/event/marquee-presents-dash-berlin-2/), marquee club @ marina bay sands shoppes, $45, students $20
 
 
 I am on telegram: search sg music chat or visit t.me/sgmusicchat
