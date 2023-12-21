@@ -46,6 +46,53 @@
 - DJ, CÉ LA VI: [MELANIE RIBBE (GER tech house)](https://www.celavi.com/en/singapore/event/sg-event-melanie-ribbe/), marina bay sands hotel rooftop bar-club, $38
 - DJ,  [Thugshop X Friendly Waters pres. - KAMMA & MASALO (NED funky disco soul house)](https://eventbrite.sg/e/775996385077), tuff club @ 138 robinson rd cbd, $36
 - DJ, Marquee: [BLASTERJAXX (big room electro house)](https://marqueesingapore.com/event/marquee-presents-blasterjaxx/), marquee club @ marina bay sands shoppes, $45
-- `*` DJ, Yang: [White Xmas KPop Party with Limmy, DJ Riri, Vanvanz](https://www.instagram.com/p/C03xHLlyr5T/), yang club @ clarke quay blk a, [tix 🎟](https://app.ticket-crowdserve.com/events/asian-szn-20-white-xmas-kpop-party-clq6c5yo70052pu01d7rqvh5b) $26 or ladies free (see og post)
+
+# 23 Dec 2023, Sat
+- [张信哲 Jeff Chang](https://ticketmaster.sg/activity/detail/23sg_jeffchang), Indoor Stadium, $168
+- [苏永康 William So](https://sistic.com.sg/events/so1223), Resorts World Sentosa Ballroom, $78
+- Gardens by the Bay: [Celebrate Youth Festival Day 4 POP: GARETH FERNANDEZ, LINYING ft Betelgeuse, IMAN FANDI ft Danzpeople](https://www.gardensbythebay.com.sg/en/things-to-do/calendar-of-events/celebrate-youth-electric-garden/pop.html), silver garden @ gardens by the bay, **free**
+- [Inbetweeners 3: ALT IDIOTS by rade's lunchbox - FERN, Feelslikeyou, Late Culture, Filtershot, Uranophobia ft Mid West Emo night 1.5 Afterparty](https://www.instagram.com/p/C0oZACoh254/), `indie alt rock, emo pop punk, shoe music`, Phil's Studio @ High Street Centre L3 (city hall), **$20**
+- [Mata Rambang Fast Death Vol VI - `Grind/Crustdeath`: Kimura Lock, Offset, Bodyrag (MY), <<<30s - `Drone/Noise`: Kernal (SUI), Ba'ah x Schizopheric Wonderland, Slaughter Table x sIn](https://www.instagram.com/p/Cz_oanwBqQS/), rad studio 345 sq, **$20**
+- [HEAVY SKANKIN NITE - Johny Comes Lately, Hacktick! (MY), El Magnifico (ID), Seventy3, Murder by SKA (SGs)](https://www.instagram.com/p/C0OJo5SLm0S/), Nineteen Eighty Studios @ 361 Joo Chiat Rd, [tix 🎟](https://www.eventbrite.sg/e/767535949687) $25
+- [Chill Wave 3.0 by WeTheUncouth - sara elouisa, linedrive, sleepy days, T.HIRST](https://www.instagram.com/p/C0vf5XmL6f3/), `acoustic sets from indie artistes` Song Lin Building L6 @ 1 Syed Alwi Road (jalan besar/lavender), **$10**
+- [SWEE LEE SEASONAL SOUNDS - Parka Takeover: ICEBOX, REGINA SONG, Elaine](https://www.instagram.com/p/C1GTdJDy9nN/), `sg pop, alt`, swee lee music store @ the star vista (buona vista), **free**
+- [UTOPIA SZN 2.0 by Amthakid, AhmadJohnson69, Chronicalz, Nakalness, Guccimith, Zhe Khamil](https://www.instagram.com/p/C086MwFhba8/?),  `SG & MY HIPHOP EVENT`, ESPLANADE Annexe, [tix 🎟](https://www.esplanade.com/whats-on/2023/utopiaszn-20) no longer $20 now **free RSVP**
+- Esplanade: [Gifts of Harp-iness by Charmaine Teo, Annaliza Tan and Students](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/gifts-of-harp-iness), concourse, **free**
+- Esplanade: [Jingle Bell Jams by Oompah Beats in lederhosen & dirndl](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/jingle-bell-jams), courtyard **free**
+- Esplanade: [RIA 897 Singa Maksima x Locals Only - Rahila Rashun, ALYPH, Fariz Jabba, Liwani, Republic Polytechnic WIRA](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/singa-maksima-x-locals-only), `Singers, Rappers, Dikir Barat`  outdoor, **free**
+
+&nbsp;
+- Philharmonic Wind Orchestra: [LEGEND: Anita Mui Tribute Concert by ](https://esplanade.com/whats-on/2023/legend-anita-mui-tribute-concert), ESPLANADE, $25
+- [World Strings Day: Melodies of Christmas Joy: 100 String Musicians of all ages Live, arr. David Loke by Marina Central](https://www.instagram.com/p/C0Tc-DUgjl6/), Linkbridge bw Marina Square & Millenia Walk (esplanade/promenade), **free**
+- OBOG Wind Symphony: [Metamorphosis - 15 Years of OBOG](https://www.instagram.com/p/C050Ph9xWyd/), Victoria Concert Hall, **$15**
+- [Christmas Concert Series by Black Earth Art Museum - flute tenor, soprano, piano](https://blackearthartchristmas.peatix.com/), Black Earth Recital Studio @ 367 Joo Chiat Road, $25
+- Maduro Jazz:  [Bewitching Ballads by Soukma & Rick Smith](https://eventbrite.com/e/770785378817), maduro @ sofitel sentosa, $38++ drink credits
+- Jazz Loft:  [Enriquez-Hasan-Calzado Trio @ The Jazz Loft](https://eventbrite.sg/e/768768436087),Blu Jaz L3 @ bali ln (bugis), $22
+- Cool Cats Jazz: [The Christmas Show with Natasha Oong - LAST](https://www.instagram.com/p/C0srGfRpBa5/), nco club @ 32 beach rd, $38
+- Live & DJ, [Rhapsody - 2 Rappers (Baha Mista-B & Thambi Natta_ v 2 DJs (DJ Jazz & Jack Chadraw) by Sin City](https://www.instagram.com/p/C03imdBrQ4K/),`SG indian bollywood kollywood hiphop`  Sector 26 @ Cuppage Plaza b1 (Somerset orchard), [tix 🎟](https://peatix.com/event/3794416), $25
+- Live & DJ, Skyfall: [Jingle Beatz with Hemina  (hindi afrobeat) & Elliyas & DJ Alvin G](https://eventbrite.sg/e/760589151627), Skyfall Rooftop restrobar @ Travelodge Harbourfront, $45
+
+&nbsp;
+
+- DJ, [HEDGER's NO RAGRETS 00s 10s Party - Christmas Edition (classic pop and EDM tunes)](https://www.instagram.com/p/C0f2CPCRQZ6/), Projector X Golden Village Ruby Lounge L6 @ Cineleisure Orchard, **free**
+- DJ, [Snow Rave: The Ultimate Winter Party Experience (Christmas Edition) - DJs Titus Low, Limmy, Cloudy, Skabush, Chervy, Gwendolyn, Kilogramz, Sharkbow, Pillazion, The Night Runners](https://www.instagram.com/p/C0g82cKvX6T/), At Snow City Singapore 21 Jurong Town Hall Road, [tix 🎟](https://snowravechristmasedition.peatix.com/) , $60
+- DJ, ARK11: [Snow Rave AfterParty - UBERJAKD (AUS hard trance techno) - Christmas Slumber Party](https://www.instagram.com/p/C1BfxVjSKl1/), ARK 11 Club @ Orchard Central Mall L11, $40~ online with drinks
+- DJ, [Fizzy Pop Night Xmas Edition by SG Taps - DJ Itch & Hiddy's Asian Boogie, City Pop, Rare Groove classics](https://www.instagram.com/p/C01arIkvwVJ/), SG Taps Japanese-SG fusion craft beer bar @ 13 Duxton Hill (maxwell), free/bar
+- DJ, Offtrack: [Bongomann ft RTJ (dub breaktronica)](https://www.instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
+- DJ Moonstone: [SIVANESH (deep house, leftfield house)](https://www.instagram.com/p/C00yO17SGMA/), Moonstone BAR @ 103 Amoy St, free/bar
+- DJ, High House: [Shaun Nocturnals & Fariz (house techno progressive)](https://www.instagram.com/p/C0y1HtEyP3N/), New Lounge @ 1 Raffles Place Roof (old 1-altitude), $38
+- DJ, Here Kitty Kitty: [DJ Krys](https://www.instagram.com/p/C0QlPRcyNRA/), Here Kitty Kitty Speakeasy & Cocktail Lounge @ Clarke Quay
+- DJ, Potato Head: [Ron Maran (house techno)](https://www.instagram.com/p/C0f-526A0vm/), 36 Keong Saik Rd, bistro speakeasy bar
+- DJ, Sand Bar Sentosa: [Jingle Jams with The Partyman & Jason T](https://www.instagram.com/p/C0_YD_DPpqH/), Sand Bar @ 53 Siloso Beach Walk
+- DJ, Yang Club: [The Naughty List - Winter in Hongdae withDJS Raw, Krisha, Nicole](https://www.instagram.com/p/C0_f-aOyFpx/?img_index=4), `guessing kpop theme`, yang club clarke quay
+- DJ, Cherry Discotheque:[2000s Babies with DJ Ling, Som J, Shai](https://www.instagram.com/p/C1HhUiyvu2D),` Cherry Hall`, 133 cecil st (cbd), $22
+- DJ, Neil Conversion: [KPOP NIGHT](https://www.instagram.com/p/C1HQ0JUy-m4/), 43 Neil Road (maxwell), lgbt gay bar-club, $35 liquid buffet
+- `Drag`, [RIOT! BALLS 23rd December 2023](https://riot231223.peatix.com/), hard rock cafe orchard cuscaden, $25
+- DJ, [CatchUsMove - CumPop with DJ Alva (IDN), DJ Zack C, Performance by Lilith Blaque](https://www.instagram.com/p/C0YY37JOx6x/), `lgbt event`,The Bank Burger Bar @ 46 Craig Road,  [tix 🎟](https://www.catchusmove.com/event-details/pop-the-bank) $18
+- DJ, Marquee: [Cirque Night with DJ PartywithJay (tech house, bass house)](https://marqueesingapore.com/event/marquee-cirque-2/), marquee club @ marina bay sands shoppes, $25
+- DJ, Tipsy Unicorn: [Dannic (NED festival big room house)](https://www.instagram.com/p/C0RIVY-xn_L/), Tipsy Unicorn Beach Club @  36 Siloso Bch Walk (Sentosa), $25~
+- DJ, ZOUK: [GAMMER (UK hardcore, edm dubstep)](https://www.instagram.com/p/C0tY-2As-36/), zouk club clarke quay, $45
+- DJ, [Unmute Invites: PRISMER (FABRIC, IND-UK house techno leftfield breaks jungle)](https://www.instagram.com/p/C0TfFnJSGj0/), tuff club @ 138 robinson rd cbd, [tix 🎟](https://eventbrite.sg/e/769606733457) $30
+
 
 I am on telegram: search sg music chat or visit t.me/sgmusicchat
