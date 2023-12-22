@@ -185,6 +185,9 @@
 - DJ, [Thugshop Presents - KOTSU [CYK] (JPN house)](https://eventbrite.sg/e/777437896677), headquarters techno-house club @ 66A boat quay, $36
 - DJ,  [ØGravity x Thugshop Presents - WASSU (ANJUNADEEP US organic prog house)](https://eventbrite.sg/e/775326792307), tuff club @ 138 robinson rd cbd, $36
 
+
+# 30 Dec 2023, Sat
+
 - [葉麗儀  Frances Yip - 閃耀金曲演唱会 (HK cantopop)](https://sistic.com.sg/events/frances1223), ESPLANADE Concert Hall, $78
 - [EOY J-Culture Festival 2023 Day 1 ](https://www.theeoy.com/eoy/), suntec city convention centre, [IG](https://www.instagram.com/p/C1Er840LnH1/) info, [tix 🎟](https://www.eventbrite.sg/e/700663713027) $20
 	- DJ, [Golden Mix DJ JanKenPon](https://www.instagram.com/p/C06UsQsBKt4/)
@@ -215,6 +218,8 @@
 - DJ, [Fuego Night presents BAD M.O.B (Under The Radar KL)](https://www.instagram.com/p/C0oTxTohAku/), hard rock cafe orchard cuscaden, $32
 - DJ, [Thugshop X FomoHomo XOXO Presents -  CYRK (GER detroit style techno acid electro)](https://eventbrite.sg/e/775997779247), `lgbt friendly`, tuff club @ 138 robinson rd cbd, $35
 - DJ, Marquee: [CHARLOTTE DE WITTE (techno)](https://marqueesingapore.com/event/marquee-presents-charlotte-de-witte/), marquee club @ marina bay sands shoppes, $100
+
+&nbsp;
 
 I am on telegram: search sg music chat or visit t.me/sgmusicchat
 
