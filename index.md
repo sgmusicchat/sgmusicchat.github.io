@@ -41,7 +41,7 @@
 - DJ, Here Kitty Kitty: [DJ Tang](https://www.instagram.com/p/C0QlPRcyNRA/), Here Kitty Kitty Speakeasy & Cocktail Lounge @ Clarke Quay
 - DJ, Club Hell: [Kopitiam in Hell](https://www.instagram.com/p/C1G3LcpvsHj/), gay lgbt club @ 113 telok ayer st, $30
 - DJ, Neil Conversion: [Retro Night](https://www.instagram.com/p/C0_ntmySRL5/), 43 Neil Road (maxwell), lgbt gay bar-club
-- DJ, Zouk Phuture: [Soniq (90s rave, hard trance, techno, house) - DJs Casper, Hong, Joshua Dillon](https://zoukclub.com/soniq/), zouk club clarke quay, [tix 🎟]( $35 presale buy from mambo jambo access
+- DJ, Zouk Phuture: [Soniq (90s rave, hard trance, techno, house) - DJs Casper, Hong, Joshua Dillon](https://zoukclub.com/soniq/), zouk club clarke quay, [tix 🎟](https://ticketing.zoukclub.com/step1.aspx?qCQEwot5AirTkg0cF1PdgA) $35 presale buy from mambo jambo access
 - DJ, Zouk: [MAMBO JAMBO Christmas Edition - Jeremy Boon & Aldrin (80s, throwbacks, disco)](https://zoukclub.com/mambo-jambo/). zouk club clarke quay, $35 access to soniq @ phuture
 - DJ, ARK11: [KRAIZ (edm house) - Christmas Slumber Party](https://www.instagram.com/p/C1BreM9yf6C/), ARK 11 Club @ Orchard Central Mall L11, $40~ online with drinks
 - DJ, CÉ LA VI: [MELANIE RIBBE (GER tech house)](https://www.celavi.com/en/singapore/event/sg-event-melanie-ribbe/), marina bay sands hotel rooftop bar-club, $38
