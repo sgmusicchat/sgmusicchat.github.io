@@ -164,5 +164,58 @@
 - DJ, Offtrack: [SGAMO (ITA drum & soul)](https://www.instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
 - DJ, [Horizons Vol. 2 Christmas - By Invite Only (bollywood, club hits)](https://www.instagram.com/p/C0l5BOBSOGx/), Bedok-Chai Chee Area, RSVP
 
+- # 29 Dec 2023, Fri
+
+- DJ, ZOUK: [FATBOY SLIM (big beat, alternative dance, acid funk house)](https://www.instagram.com/p/Czc48KYSfMx/), zouk club clarke quay, [tix 🎟](https://ticketing.zoukclub.com/step1.aspx?A5tiaf8DIoA6QeK08IPYsQ) $55
+- [Music for People - Voices of Hope (dvorak, mendelssohn) - symphony orchestra, 100-member choir, cond. Audrey Chung](https://sistic.com.sg/events/voh1223), ESPLANADE Concert Hall, $28 
+- Esplanade: [Falling Feathers & Friends ft Amanda Ong, Brannlum, IZPZ, Ian Kwan](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/falling-feathers-and-friends), `indie folk-pop, electronic, singer-songwriter`, concourse **free**
+- Esplanade: [a couple of molecules by RENE & the loves of her life](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/a-couple-of-molecules), `90s style alternative pop rock`, outdoor, **free**
+- Maduro Jazz: [JAZZ DUETS with EJ Hughes (sax) & Timothy Mok (keys) ft. guest singer Karena - Inspired by Wayne Shorter & Herbie Hancock](https://eventbrite.com/e/775415778467), maduro @ sofitel sentosa, $38++ drink credits
+- Jazz Loft: [The David Loke Quintet](https://eventbrite.sg/e/769601868907), Blu Jaz L3 @ bali ln (bugis), $22
+- Cool Cats Jazz: [NICK ZAVIOR ft Jordan Wei Trio - Day 2](https://www.instagram.com/p/C0-oBu-SwiN/?img_index=2), nco club @ 32 beach rd, $38
+- Candlelight x RWS S.E.A Aquarium: [A Tribute to Joe Hisaishi with Vocalise String Quartet](https://feverup.com/m/119361), Resort World Sentosa Aquarium, sold out
+
+&nbsp;
+
+- DJ, [Flashback Friday FINALE by UnfilteredPresent with DJ Gainzter & DJ Kiddroyale](https://peatix.com/event/3795293), `00s pop hiphop high school musical throwbacks`, hard rock cafe orchard cuscaden, $30
+- DJ, [Ringtone: Santa's Trip - DJs Howrøng, MetaMoksha, BeansClub (hard tech, noise)](https://www.instagram.com/p/C0y4DIir4sp/), Bottom Floor: [Blaire Coucher & Friends (hyperpop, pop)](https://www.instagram.com/p/C05wHgALK2P/), Epiphyte Bar @ 47 Neil Road, [tix 🎟](https://ringtone005.peatix.com/), $22
+- DJ, Offtrack: [Daryl Knows (house, break-ing)](https://www.instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
+- DJ, Here Kitty Kitty: [SIVANESH](https://www.instagram.com/p/C0QlPRcyNRA/), Here Kitty Kitty Speakeasy & Cocktail Lounge @ Clarke Quay
+- DJ, Potato Head: [Kevin Sy (disco/house nite)](https://www.instagram.com/p/C0f-526A0vm/), 36 Keong Saik Rd, bistro speakeasy bar
+- DJ, [Thugshop Presents - KOTSU [CYK] (JPN house)](https://eventbrite.sg/e/777437896677), headquarters techno-house club @ 66A boat quay, $36
+- DJ,  [ØGravity x Thugshop Presents - WASSU (ANJUNADEEP US organic prog house)](https://eventbrite.sg/e/775326792307), tuff club @ 138 robinson rd cbd, $36
+
+- [葉麗儀  Frances Yip - 閃耀金曲演唱会 (HK cantopop)](https://sistic.com.sg/events/frances1223), ESPLANADE Concert Hall, $78
+- [EOY J-Culture Festival 2023 Day 1 ](https://www.theeoy.com/eoy/), suntec city convention centre, [IG](https://www.instagram.com/p/C1Er840LnH1/) info, [tix 🎟](https://www.eventbrite.sg/e/700663713027) $20
+	- DJ, [Golden Mix DJ JanKenPon](https://www.instagram.com/p/C06UsQsBKt4/)
+- [Happy New Ear by Rabak Records - SEER, MARZADLAND, LATE CULTURE, URANOPHOBIA](https://www.instagram.com/p/C0DT21Mvirf/), `indie alt rock shoegaze gig`, Tonehouse Studios @ Parklane Shopping Mall (selegie, bencoolen/dhoby), [tix 🎟](https://eventbrite.com/e/765636006907) $21,
+- [Traverse: Migrant Stories - Arts Songs & Poems by our Migrant Workers](https://traverse-migrant-stories.peatix.com/), ESPLANADE, $27
+- Esplanade: [The 1990s SG Alt Music Reunion - A Subterranean Affair  ft. Ginette Chittick (PsychoSonique / Astreal), Syed Ahmad (Stoned Revivals), Hassan (Bushmen/Disko), Topet (Flow/Disko Biscuit), Nigel Hogan (The Mother/Padres), Leslie Low (Humpback Oak), Bachtiar (Stellarium), Ed Dino (Force Vomit), Roz (Ecrus Garage)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/a-subterranean-affair), outdoor, [promo](https://www.instagram.com/p/C0nniTby_8z/)**free**
+- Esplanade: [Jam Bands Collab - The Midnight Suns, Pure Fantasy and Shak’thiya.](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/new-friends-and-old), `70s-90s era`, **free**
+- Esplanade Dance: [DECADANS by Artistari Gentari](https://esplanade.com/whats-on/2023/decadans), $49
+- Wisma Geylang Serai: [Muzikita - AMPLIFIED pop band](https://www.instagram.com/p/C0TXUabrTpy/), geylang serai CC  (paya lebar), **free**
+- [CENTREPIECES: A reading & open mic night](https://www.eventbrite.sg/e/772093170457), Second Story: Peace Edition @ PEACE CENTRE (Sophia Rd, Bencoolen), **free rsvp**
+- [Toa Payoh Guitar Club - Guitar Delights](https://www.eventbrite.sg/e/776075832707?), Woodlands Regional Library, **free RSVP**
+- Jazz Loft: [The CHOK KERONG Trio](https://eventbrite.sg/e/768823320247), Blu Jaz L3 @ bali ln (bugis), $24, 
+- Maduro Jazz: [JAZZ DUETS with EJ Hughes (sax) & Timothy Mok (keys) ft. guest singer Karena - Inspired by Wayne Shorter & Herbie Hancock - Day 2](https://eventbrite.com/e/775421435387), maduro @ sofitel sentosa, $38++ drink credits
+- Cool Cats Jazz: [NICK ZAVIOR ft Jordan Wei Trio - LAST](https://www.instagram.com/p/C0-oBu-SwiN/?img_index=2), nco club @ 32 beach rd, $38
+- Blackbird: [DYRT - A 90s Grunge Tribute](https://www.instagram.com/p/C0triTQSVQr/), Blackbird Music Bar Gillman Barracks @ 8 Lock Rd, free/bar
+
+&nbsp;
+
+- DJ, `CULTURE Festival`, [WHOHURTYOU? The Greatest Hits  (Emo Pop-Punk/Alt-Rock Party)](https://culture-festival-2023.peatix.com/), club iki @ ikigai izakaya riverwalk (clarke quay), [tix 🎟](https://culture-festival-2023.peatix.com/) $30
+- DJ, Offtrack: [Bongomann ft Mystery Guest](https://www.instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
+- DJ, Moonstone: [Night Fever 70s 80s Party with DJ Aldrin](https://www.instagram.com/p/C0_QTFcyKTc/), Moonstone BAR @ 103 Amoy St, free/bar
+- DJ, Potato Head: [HBN (house/techno nite)](https://www.instagram.com/p/C0f-526A0vm/), 36 Keong Saik Rd, bistro speakeasy bar
+- DJ, Here Kitty Kitty: [Tony Tay](https://www.instagram.com/p/C0QlPRcyNRA/), Here Kitty Kitty Speakeasy & Cocktail Lounge @ Clarke Quay
+- DJ, [Bailar Sensación New Year 50-50 Party (Salsa & Bachata Dance)](https://eventbrite.sg/e/775368928337), BISOUX Cocktails & Coffee @ Gr.ID Mall Selegie (bencoolen/dhoby), **$18**
+- DJ,  [Hideout by Sunny Side x Nauv.feeds - Gan & moss & Dee & fatcatheartattack going b2b2b2b](https://www.instagram.com/p/C00cR7HST5p/), The Hideout Rooftop @ 11 Hamilton Rd (nothing fancy, bs CSHH cafe, bendemeer), $25
+- DJ, ZOUK Capital: [Glam All female DJs - Caset, Chuin, DJ Krys](https://ticketing.zoukclub.com/step1.aspx?7zoO8T5f5-2PhQ8D7hNRhg), zouk club clarke quay, $45
+- DJ, Tipsy Unicorn: [DUBVISION (NED prog house)](https://dubvision30dec.peatix.com/), Tipsy Unicorn Beach Club @  36 Siloso Bch Walk (Sentosa), ~$20
+- DJ, [Fuego Night presents BAD M.O.B (Under The Radar KL)](https://www.instagram.com/p/C0oTxTohAku/), hard rock cafe orchard cuscaden, $32
+- DJ, [Thugshop X FomoHomo XOXO Presents -  CYRK (GER detroit style techno acid electro)](https://eventbrite.sg/e/775997779247), `lgbt friendly`, tuff club @ 138 robinson rd cbd, $35
+- DJ, Marquee: [CHARLOTTE DE WITTE (techno)](https://marqueesingapore.com/event/marquee-presents-charlotte-de-witte/), marquee club @ marina bay sands shoppes, $100
 
 I am on telegram: search sg music chat or visit t.me/sgmusicchat
+
+
