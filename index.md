@@ -6,7 +6,7 @@
 - Gardens by the Bay: [Celebrate Youth Festival Day 3 ELECTRONIC: MYRNE, FOXELA ft Anne & Daniel Sid, DJs Luqhere, SMU StereoMeta ft DJ Gigi, Nanyang Poly Live ft DJ Zehlo](https://www.gardensbythebay.com.sg/en/things-to-do/calendar-of-events/celebrate-youth-electric-garden/electronic.html), silver garden @ gardens by the bay, **free**
 - DARE Festival: [Day Show - Sammin Ang, Gaston & Lucas, Poesy Liang (MY), Arshad Fawwaz - Disabled Artists Rebuilding Earth](https://www.instagram.com/p/C0yPmSwPjMn/), SCAPE Orchard (somerset), **free**
 - DARE Festival : [BRIDGES - Finale Night Concert -  Joanna Dong, Tay Kewei and Alfred Sim with Sky Shen, Wan Wai Yee and Daniel Ng,  Vijay x Tan Kian Joo's poet x flautist](https://www.instagram.com/p/C0qmhVGPDUa/), `collaborations between mainstream and disabled artists`, SCAPE Orchard (somerset), **$15**
-- [Off The Rails Vol VI: The Holiday Edition ft FUDGY, IN SPACE, SWITCHBLADES, Desirée DJ Set, ](https://www.instagram.com/p/Cz0-rYBRnWb/), `indie vibes`, Sixteen Ounces Bar & Kitchen @ Upper Bukit Timah Rail Mall (hillview),  [tix 🎟](https://eventbrite.sg/e/758612017967) $27
+- [Off The Rails Vol VI: The Holiday Edition ft FUDGY, IN SPACE, SWITCHBLADES, Desirée (camping) DJ Set](https://www.instagram.com/p/Cz0-rYBRnWb/), `indie rock, pop, electronic vibes`, Sixteen Ounces Bar & Kitchen @ Upper Bukit Timah Rail Mall (hillview),  [tix 🎟](https://eventbrite.sg/e/758612017967) $27
 - [Chinese & English R&B LIVE - ALL NIGHT w X'mas Edition by Wire Entertainment](https://www.instagram.com/p/C0gWVnmxoAY/),  WE Livehouse @ Atrix Building 82 Lor 23 Geylang (bs. aljunied mrt), [english](https://www.instagram.com/p/C0gTmenxcUA/) $22
 - Esplanade: [CROWN by Amni Musfirah (pop rnb)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/crown), outdoor **free**
 - Esplanade: [Yanto Sani & Friends (rock, indie pop, electronic)](https://esplanade.com/whats-on/festivals-and-series/free-programmes/2023/come-together/yanto-sani-and-friends), concourse, **free**
@@ -26,22 +26,24 @@
 
 &nbsp; 
 
-- DJ, Movie, Drag Gogo, [The Glory Hoes x Baby Boy pres. Beyonce Renaissance AfterParty at Projector Cineleisure (ft dj, drag, gogo)](https://www.instagram.com/p/C1HGjRtSk34/?), movie + party [sold](https://theprojector.sg/films-and-events/renaissance-a-film-by-beyonc%C3%A9-with-afterparty/) out, but just party available **$15**
+- DJ, Movie, Drag Gogo, [The Glory Hoes x Baby Boy pres. Beyonce Renaissance AfterParty at Projector Cineleisure (ft dj, drag, gogo)](https://www.instagram.com/p/C1HGjRtSk34/?), `lgbt friendly` movie + party [sold out](https://theprojector.sg/films-and-events/renaissance-a-film-by-beyonc%C3%A9-with-afterparty/) , just party available **$15**
 - DJ, [HD Heaven by Club Kiki (PC Music Hyperpop Bubblehgum Pop) ft Ringtone - Blaire Coucher, BeansClub, Dreaming of Jordan ](https://www.instagram.com/p/C0-oBu-SwiN/), `lgbt friendly`. Lion Brewery Co @ 36 Club Street (chinatown), **$15**
-- DJ, Behind the Green Door: [Lincey & Fantastic Dinosaur pres ++](https://www.instagram.com/p/C1G3h5lyUxS/), Behind The Green Door SG Lounge (fmr Kilo Lounge) [venue](https://www.lifeinarpeggio.com/blog/behind-the-green-door-singapore-kilo-phat-cat-collective-cocktail-bars-singapore) @ 97 Duxton Road (maxwell), [tix 🎟](https://eventbrite.com/e/778669680977) **$16**
+- DJ, Behind the Green Door: [Lincey & Fantastic Dinosaur pres ++](https://www.instagram.com/p/C1G3h5lyUxS/), Behind The Green Door SG Lounge (fmr Kilo Lounge) @ 97 Duxton Road  [venue](https://www.lifeinarpeggio.com/blog/behind-the-green-door-singapore-kilo-phat-cat-collective-cocktail-bars-singapore) (maxwell), [tix 🎟](https://eventbrite.com/e/778669680977) **$16**
 - DJ, [Bollywood Club: Oye Santa Santa Oye](https://eventbrite.com.au/e/749001552807), hard rock cafe orchard cuscaden, $30
 - DJ, [Fuego Night Xmas - Reggaeton Dancehall Afrobeats with DJ S.O.S, Skilla, Zax](https://www.instagram.com/p/C01E3hMLQDR/), Blu Jaz L2 @ bali ln (bugis), $23
-- DJ, Offtrack: [Ramesh (global grooves)](https://www.instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
-- DJ, ARK11: [KRAIZ (edm house) - Christmas Slumber Party](https://www.instagram.com/p/C1BreM9yf6C/), ARK 11 Club @ Orchard Central Mall L11, $40~ online with drinks
-- DJ, Potato Head: [Ulysses (disco house techno)](https://www.instagram.com/p/C1CDQE2SLml/), 36 Keong Saik Rd, bistro speakeasy bar, free/bar
-- DJ, High House: [MinGs & Suren (house, techno, progressive)](https://www.instagram.com/p/C0y1HtEyP3N/), New Lounge @ 1 Raffles Place Roof (old 1-altitude), $38
-- DJ, Yang Club: [The Naughty List Jingle Bell Rave with Ministry of DJs](https://www.instagram.com/p/C0_f-aOyFpx/?img_index=3), yang club clarke quay
-- DJ, Club Hell: [Kopitiam in Hell](https://www.instagram.com/p/C1G3LcpvsHj/), gay lgbt club @ 113 telok ayer st, $30
+- DJ, [WILD FYAH at Vertigo 26 - Raaj SWTLKR DJ Rumshow, Live Perscission (afrobeats)](https://www.instagram.com/p/C1G1tKiypYf/), listening bar @ MINT Museum City Hall 26 Seah St, free/bar
 - DJ [Catfish Izakaya x Secret Pals presents The Red Room Vol. 6: One More Time](https://www.instagram.com/p/C0mAHWvyQB9/), `hip-hop, r&b soul to house funk disco to amapiano, baile funk`, Catfish Izakaya @ 5 Gemmill Lane (telok ayer cbd), [tix 🎟](https://eventbrite.sg/e/774712565137) **$15**
+- DJ, Offtrack: [Ramesh (global grooves)](https://www.instagram.com/p/Cz5buRmSfd9/), bs hong lim park, music gastro bar
 - DJ, Luxuria: [Russian Music Party](https://eventbrite.sg/e/771361080757), Luxuria (aka Club Di Lusso) @ Tekka Place Mall Rooftop (rochor), $30
+- DJ, Yang Club: [The Naughty List Jingle Bell Rave with Ministry of DJs](https://www.instagram.com/p/C0_f-aOyFpx/?img_index=3), yang club clarke quay
+- DJ, High House: [MinGs & Suren (house, techno, progressive)](https://www.instagram.com/p/C0y1HtEyP3N/), New Lounge @ 1 Raffles Place Roof (old 1-altitude), $38
+- DJ, Potato Head: [Ulysses (disco house techno)](https://www.instagram.com/p/C1CDQE2SLml/), 36 Keong Saik Rd, bistro speakeasy bar, free/bar
 - DJ, Here Kitty Kitty: [DJ Tang](https://www.instagram.com/p/C0QlPRcyNRA/), Here Kitty Kitty Speakeasy & Cocktail Lounge @ Clarke Quay
+- DJ, Club Hell: [Kopitiam in Hell](https://www.instagram.com/p/C1G3LcpvsHj/), gay lgbt club @ 113 telok ayer st, $30
+- DJ, Neil Conversion: [Retro Night](https://www.instagram.com/p/C0_ntmySRL5/), 43 Neil Road (maxwell), lgbt gay bar-club
 - DJ, Zouk Phuture: [Soniq (90s rave, hard trance, techno, house) - DJs Casper, Hong, Joshua Dillon](https://zoukclub.com/soniq/), zouk club clarke quay, [tix 🎟]( $35 presale buy from mambo jambo access
 - DJ, Zouk: [MAMBO JAMBO Christmas Edition - Jeremy Boon & Aldrin (80s, throwbacks, disco)](https://zoukclub.com/mambo-jambo/). zouk club clarke quay, $35 access to soniq @ phuture
+- DJ, ARK11: [KRAIZ (edm house) - Christmas Slumber Party](https://www.instagram.com/p/C1BreM9yf6C/), ARK 11 Club @ Orchard Central Mall L11, $40~ online with drinks
 - DJ, CÉ LA VI: [MELANIE RIBBE (GER tech house)](https://www.celavi.com/en/singapore/event/sg-event-melanie-ribbe/), marina bay sands hotel rooftop bar-club, $38
 - DJ,  [Thugshop X Friendly Waters pres. - KAMMA & MASALO (NED funky disco soul house)](https://eventbrite.sg/e/775996385077), tuff club @ 138 robinson rd cbd, $36
 - DJ, Marquee: [BLASTERJAXX (big room electro house)](https://marqueesingapore.com/event/marquee-presents-blasterjaxx/), marquee club @ marina bay sands shoppes, $45
