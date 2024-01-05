@@ -6,7 +6,7 @@ Hello You are now reading an early release of next sat gigs
 - [Hetty Koes Endang](https://ticketmaster.sg/activity/detail/24_melodies), mediacorp theatre one-north, $110
 - [BETWEEN US THE SERIES FAN MEETING](https://allaccess-asia.bigtix.io/events/BETWEEN1), Capitol Theatre (city hall), $188
 - Indie FEST Day 1: [Music Day Out! 2024 by SCAPE/COMMA - NO GOOD (MY), Gabba (PH), Blush, Regina Song, Woes, Bellied Star and Prontaxan (ID)](https://mdo2024.peatix.com/), SCAPE ORCHARD, [eventbrite 🎟](https://eventbrite.sg/e/760241110627) $30 onwards
-	- [Ultimate Drummers Workshop (DrummerCo X Music Day Out)](https://eventbrite.sg/e/788830371877), SCAPE Orchard, Gallery L5, **free**
+- Also: [Ultimate Drummers Workshop (DrummerCo X Music Day Out)](https://eventbrite.sg/e/788830371877), SCAPE Orchard, Gallery L5, **free**
 - [Bloodstone 'Electrocution' LP Release Party - 20th Hellnniversary ft B.C, Nuclear Warfare (TH),  Xanadoo, Deceased](https://www.instagram.com/p/CzGpHxKBYV2/), `thrash metal, hardcore, grind`,  Aliwal Arts Centre (nicoll highway), [tix 🎟](https://bloodstonethrash.peatix.com/)
 - [MORSECODES EP LAUNCH ft TARIOT, Terrestrea, Faraday](https://www.instagram.com/p/C1TzPAdrUls/), `post hardcore/metalcore gig`, ESPLANADE Annexe Studio, [tix 🎟](https://eventbrite.com/e/769600815757) $28
 - [DXS presents Clash of the Punk Rock Night - Johny 23 & Rise of Rejectors R.o.R (MY), Iman's League, Myopix, Sugar, Anythingpress](https://www.instagram.com/p/C0iVegQhXp7/), not town area, **$20**
