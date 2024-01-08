@@ -1,5 +1,6 @@
 <head>
 <style>
+
   a.title {color: #F7A600; text-decoration: none;}
   a.version {color: #98CE00; text-decoration: none;}
   a:hover {color: #321; text-decoration: underline;}
@@ -31,14 +32,20 @@
   }
 
   .container {
-    flex: 1;
-    display: flex;
-    flex-direction: column;
+    display: grid;
+    min-width: 0px;
+    grid-template-columns: 100%;
+    grid-template-rows: 1.1fr;
+    gap: 12% 2%;
+    grid-auto-flow: column;
+    grid-template-areas:
+     "main-content"
+     "shoutbox";
   }
 
   .reddit {
     width: min(78vw, 833px);
-    display: flex;
+    grid-area: main-content;
     justify-content: center;
     align-items: center;
     margin: auto;
@@ -46,17 +53,13 @@
   
   .reddit > iframe {
     width: 100%;
-    transform: scale(1.2);
+    transform: scale(1.11);
     transform-origin: center 0;
-  
   }
 
-  .footer {
-    width: 100%;
-    text-align: center;
-    margin: 5rem auto 0;
-  }
-
+.footer {
+margin: 0 auto;
+}
     /* For larger viewports */
   @media (min-width: 1400px) {
     body {
@@ -68,21 +71,24 @@
       flex-direction: row;
       max-width: 1400px;
       margin: 0 auto;
+      gap: 0 0;
     }
 
     .reddit {
+      display:flex
       flex: 1;
-      max-width: 850px;
-      flex-basis: 850px;
+      max-width: 900px;
+      flex-basis: 1000px;
       margin: auto;
       padding-left: 4rem;
     }
 
     .footer {
-      flex-basis: 330px; /* Set the width of the second column */
-      margin: 0 auto;
+     display:flex
+     flex-basis: 300px; /* Set the width of the second column */
      padding-left: 4rem;
 }
+
 
 </style>
 </head>
