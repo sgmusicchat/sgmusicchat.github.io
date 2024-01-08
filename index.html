@@ -57,15 +57,17 @@
     margin: auto;
   }
 
-    /* Media query for larger viewports */
-  @media (min-width: 1300px) {
+    /* For larger viewports */
+  @media (min-width: 1500px) {
     body {
       flex-direction: row;
     }
 
     .container {
+      display:flex;
       flex-direction: row;
-
+      max-width: 1400px;
+      margin: 0 auto;
     }
 
     .reddit {
@@ -76,7 +78,8 @@
 
     .footer {
       flex-basis: 300px; /* Set the width of the second column */
-    }
+      margin: 0 auto;
+}
 
 </style>
 </head>
