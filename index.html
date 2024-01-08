@@ -32,7 +32,6 @@
 
   .container {
     flex: 1;
-    overflow: auto; /* Enable overflow, allowing users to scroll */
     display: flex;
     flex-direction: column;
   }
@@ -59,21 +58,24 @@
   }
 
     /* Media query for larger viewports */
-  @media (min-width: 1200px) {
+  @media (min-width: 1300px) {
     body {
       flex-direction: row;
     }
 
     .container {
       flex-direction: row;
+
     }
 
     .reddit {
       flex: 1;
+      max-width: 833px;
+      margin: auto;
     }
 
     .footer {
-      flex-basis: 200px; /* Set the width of the second column */
+      flex-basis: 300px; /* Set the width of the second column */
     }
 
 </style>
