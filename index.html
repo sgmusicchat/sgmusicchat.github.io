@@ -36,7 +36,7 @@
     min-width: 0px;
     grid-template-columns: 100%;
     grid-template-rows: 1fr;
-    gap: 14% 2%;
+    gap: 15% 2%;
     grid-auto-flow: column;
     grid-template-areas:
      "main-content"
@@ -55,7 +55,8 @@
     width: 100%;
     transform: scale(1.15);
     transform-origin: center 0;
-    overflow-y: auto;
+    overflow: visible;
+    overflow-anchor: none;
   }
 
 .footer {
