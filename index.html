@@ -34,34 +34,35 @@
   margin: 0 2px;
   }
 
-  .container {
-    display: grid;
-    min-width: 0px;
-    grid-template-columns: 100%;
-    grid-template-rows: 1fr;
-    gap: 15% 2%;
-    grid-auto-flow: column;
-    grid-template-areas:
-     "main-content"
-     "shoutbox";
-  }
-
-  .reddit {
-    width: min(82vw, 852px);
-    grid-area: main-content;
-    justify-content: center;
-    align-items: center;
-    margin: auto;
-  }
   
-  .reddit > iframe {
-    width: 100%;
-    transform: scale(1.15);
-    transform-origin: center 0;
-    overflow: visible;
-    overflow-anchor: none;
-  }
+.container {
+  display: grid;
+  min-width: 0px;
+  grid-template-columns: 100%;
+  grid-template-rows: auto auto; /* Ensures that two items stack vertically */
+  gap: 15% 2%;
+  grid-auto-flow: row; /* Ensures the grid auto-places items in rows */
+  grid-template-areas:
+    "main-content"
+    "shoutbox";
+}
 
+.reddit {
+  width: min(82vw, 852px);
+  justify-content: center;
+  align-items: center;
+  margin: auto;
+}
+
+.reddit > iframe {
+  width: 100%;
+  transform: scale(1.15);
+  transform-origin: center 0;
+  overflow: visible;
+  overflow-anchor: none;
+}
+
+  
   .footer {
   margin: 0 auto;
   }
@@ -76,45 +77,33 @@
       flex-direction: row;
     }
 
-    .container {
-      display:flex;
-      flex-direction: row;
-      max-width: 1366px;
-      margin: 0 auto;
-      gap: 0 0;
-    }
+  .container {
+    display: flex;
+    flex-direction: row;
+    max-width: 1366px;
+    margin: 0 auto;
+    gap: 0 0;
+  }
 
-    .reddit {
-      display:flex
-      flex-direction: row;
-      flex: 1;
-      max-width: 860px;
-      flex-basis: 990px;
-      margin: auto;
-      padding-left: 4rem;
-      overflow:auto
-    }
+  .reddit {
+    display: flex;
+    flex-direction: column; /* Keep the column layout */
+    flex: 1;
+    max-width: 860px;
+    flex-basis: 990px;
+    margin: auto;
+    padding-left: 4rem;
+    overflow: auto;
+  }
 
-        .reddit2 {
-      display:flex
-      flex-direction: row;
-      flex: 1;
-      max-width: 860px;
-      flex-basis: 990px;
-      margin: auto;
-      padding-left: 4rem;
-      overflow:auto
-    }
+  .footer {
+    display: flex;
+    flex-basis: 310px; /* Set the width of the second column */
+    padding-left: 4rem;
+  }
 
-
-    .footer {
-     display:flex
-     flex-basis: 310px; /* Set the width of the second column */
-     padding-left: 4rem;
-}
-
-.btn-container {
- margin: auto;
+  .btn-container {
+    margin: auto;
 }
 
 
