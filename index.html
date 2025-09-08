@@ -34,23 +34,17 @@
   margin: 0 2px;
   }
 
-  
-.container {
+  .container {
   display: grid;
-  min-width: 0px;
-  grid-template-columns: 100%;
-  grid-template-rows: auto auto; /* Ensures that two items stack vertically */
-  gap: 15% 2%;
-  grid-auto-flow: row; /* Ensures the grid auto-places items in rows */
-  grid-template-areas:
-    "main-content"
-    "shoutbox";
+  grid-template-columns: 1fr;
+  gap: 2rem;
+  justify-items: center;
+  padding: 2rem;
 }
 
+/* Reddit items stack vertically */
 .reddit {
   width: min(82vw, 852px);
-  justify-content: center;
-  align-items: center;
   margin: auto;
 }
 
@@ -58,33 +52,47 @@
   width: 100%;
   transform: scale(1.15);
   transform-origin: center 0;
-  overflow: visible;
-  overflow-anchor: none;
 }
 
-  
-  .footer {
-  margin: 0 auto;
-  }
+/* Chatbox styling */
+.footer {
+  width: 100%;
+  max-width: 300px;
+  margin: 2rem auto;
+  text-align: center;
+}
 
-  .footer > iframe {
-  border-radius: 12px 25px;}
+.footer > iframe {
+  border-radius: 12px 25px;
+  width: 100%;
+}
 
 
     /* For larger viewports */
-  @media (min-width: 1320px) {
-    body {
-      flex-direction: row;
-    }
-
+@media (min-width: 1024px) {
   .container {
     display: flex;
     flex-direction: row;
-    max-width: 1366px;
-    margin: 0 auto;
-    gap: 0 0;
+    justify-content: center;
+    align-items: flex-start;
+    gap: 3rem;
   }
 
+  /* Reddit stack becomes a vertical column inside the flex row */
+  .reddit-stack {
+    display: flex;
+    flex-direction: column;
+    gap: 2rem;
+    max-width: 860px;
+    flex-shrink: 0;
+  }
+
+  .footer {
+    margin-top: 0;
+    flex-shrink: 0;
+  }
+
+  
   .reddit {
     display: flex;
     flex-direction: column; /* Keep the column layout */
@@ -96,11 +104,6 @@
     overflow: auto;
   }
 
-  .footer {
-    display: flex;
-    flex-basis: 310px; /* Set the width of the second column */
-    padding-left: 4rem;
-  }
 
   .btn-container {
     margin: auto;
