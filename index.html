@@ -14,7 +14,7 @@
    }
   
   h2 {
-    color: rgb(37, 150, 190);  /* #a1d19d; a1d19d, B5D6B2 */
+    color: #a1d19d; /* a1d19d, B5D6B2 */
     font-family: 'Comic Sans MS', 'Comic Sans', 'Chalkboard SE', 'Comic Neue', cursive; 
     text-align: center;
     font-size: 1.75em;
@@ -35,78 +35,72 @@
   }
 
   .container {
-  display: grid;
-  grid-template-columns: 1fr;
-  gap: 2rem;
-  justify-items: center;
-  padding: 2rem;
-}
-
-/* Reddit items stack vertically */
-.reddit {
-  width: min(82vw, 852px);
-  margin: auto;
-}
-
-.reddit > iframe {
-  width: 100%;
-  transform: scale(1.15);
-  transform-origin: center 0;
-}
-
-/* Chatbox styling */
-.footer {
-  width: 100%;
-  max-width: 300px;
-  margin: 2rem auto;
-  text-align: center;
-}
-
-.footer > iframe {
-  border-radius: 12px 25px;
-  width: 100%;
-}
-
-
-    /* For larger viewports */
-@media (min-width: 1024px) {
-  .container {
-    display: flex;
-    flex-direction: row;
-    justify-content: center;
-    align-items: flex-start;
-    gap: 3rem;
+    display: grid;
+    min-width: 0px;
+    grid-template-columns: 100%;
+    grid-template-rows: 1fr;
+    gap: 15% 2%;
+    grid-auto-flow: column;
+    grid-template-areas:
+     "main-content"
+     "shoutbox";
   }
 
-  /* Reddit stack becomes a vertical column inside the flex row */
-  .reddit-stack {
-    display: flex;
-    flex-direction: column;
-    gap: 2rem;
-    max-width: 860px;
-    flex-shrink: 0;
+  .reddit {
+    width: min(82vw, 852px);
+    grid-area: main-content;
+    justify-content: center;
+    align-items: center;
+    margin: auto;
+  }
+  
+  .reddit > iframe {
+    width: 100%;
+    transform: scale(1.15);
+    transform-origin: center 0;
+    overflow: visible;
+    overflow-anchor: none;
   }
 
   .footer {
-    margin-top: 0;
-    flex-shrink: 0;
+  margin: 0 auto;
   }
 
-  
-  .reddit {
-    display: flex;
-    flex-direction: column; /* Keep the column layout */
-    flex: 1;
-    max-width: 860px;
-    flex-basis: 990px;
-    margin: auto;
-    padding-left: 4rem;
-    overflow: auto;
-  }
+  .footer > iframe {
+  border-radius: 12px 25px;}
 
 
-  .btn-container {
-    margin: auto;
+    /* For larger viewports */
+  @media (min-width: 1320px) {
+    body {
+      flex-direction: row;
+    }
+
+    .container {
+      display:flex;
+      flex-direction: row;
+      max-width: 1366px;
+      margin: 0 auto;
+      gap: 0 0;
+    }
+
+    .reddit {
+      display:flex
+      flex: 1;
+      max-width: 860px;
+      flex-basis: 990px;
+      margin: auto;
+      padding-left: 4rem
+    }
+
+    .footer {
+     display:flex
+     flex-basis: 310px; /* Set the width of the second column */
+     padding-left: 4rem;
+}
+
+.btn-container {
+ margin: auto;
 }
 
 
@@ -122,20 +116,14 @@
 </div>
 
 <div class="container">
-  <div class="reddit-stack"> 
-    <div class="reddit"> 
-     <blockquote class="reddit-embed-bq" data-embed-height="500"><a href="https://old.reddit.com/r/singaporemusicchat/comments/1n8oolm/weekend_list_singapore_concerts_gigs_parties_5/"><a></a>Weekend List</a><br> by<a href="https://www.reddit.com/user/redditduk/">u/redditduk</a> in<a href="https://www.reddit.com/r/singaporemusicchat/">singaporemusicchat</a></blockquote><script async="" src="https://embed.reddit.com/widgets.js" charset="UTF-8"></script>
-      </div>
-    <div class="reddit"> 
-    <blockquote class="reddit-embed-bq" data-embed-height="300"><a href="https://old.reddit.com/r/singaporemusicchat/comments/1n8oolm/comment/nd2kg00/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button"><a></a>Bonus List</a><br></blockquote><script async="" src="https://embed.reddit.com/widgets.js" charset="UTF-8"></script>
-      </div>
-  </div
-
+  <div class="reddit"> 
+     <blockquote class="reddit-embed-bq" data-embed-height="316"><a href="https://old.reddit.com/r/singaporemusicchat/comments/1n8oolm/weekend_list_singapore_concerts_gigs_parties_5/"><a></a>Weekend List</a><br> by<a href="https://www.reddit.com/user/redditduk/">u/redditduk</a> in<a href="https://www.reddit.com/r/singaporemusicchat/">singaporemusicchat</a></blockquote><script async="" src="https://embed.reddit.com/widgets.js" charset="UTF-8"></script>
+  </div>
   
   
 <div class="footer">
 <h2>Chatbox </h2>
-<iframe src="https://www3.cbox.ws/box/?boxid=3529517&boxtag=SaVuZ9" align="middle" width="300" height="300" allowtransparency="yes" allow="autoplay" frameborder="0" marginheight="0" marginwidth="0" scrolling="auto"></iframe>	
+<iframe src="https://www3.cbox.ws/box/?boxid=3529517&boxtag=SaVuZ9" align="middle" width="300" height="290" allowtransparency="yes" allow="autoplay" frameborder="0" marginheight="0" marginwidth="0" scrolling="auto"></iframe>	
 </div>
 
 </div>
