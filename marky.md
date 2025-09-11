@@ -1,7 +1,9 @@
+The Indie Film Listing - by Film Events Where SG x redditduk
+------
 
 redditduk: I've been following marky's telegram channel (Film Events Where SG `@FEWSbymarky`) since he took it upon himself to fill the Projector's void and he's been entertaining us every morning with his reactions & pics along with the listings. Anyway we've decided to collab last sunday so ta da! Marky will be adding his own flair while I do some formatting.
 
-This list will only be updated every Wednesday, so if you want the latest events hot off the press, follow Marky's channel above!
+This reddit list will only be updated every Wednesday, so if you want the latest events hot off the press, follow Marky's channel!
 
 # Chronological List
 - **13 SEP (Sat)**: National Gallery PWL: [DOUBLE BILL: QUEEN’S PALACE & TIMESTAMP (Painting With Light)](https://www.nationalgallery.sg/sg/en/festivals/painting-with-light-2025/special-focus/queens-palace-and-timestamp.html), @ National Gallery - The Ngee Ann Kongsi Auditorium, City Hall Wing, B1 (city hall MRT)
@@ -61,5 +63,8 @@ This list will only be updated every Wednesday, so if you want the latest events
 
 
 
+&nbsp;
 
+-----
+Marky's Telegram Channel: `@FEWSbyMarky` (Film Events Where SG by marky)
 
