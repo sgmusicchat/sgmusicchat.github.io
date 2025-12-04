@@ -43,6 +43,7 @@
     grid-auto-flow: column;
     grid-template-areas:
      "main-content"
+     "sean"
      "shoutbox";
   }
 
@@ -62,6 +63,15 @@
     overflow-anchor: none;
   }
 
+
+  .seanarea {
+    width: min(82vw, 852px);
+    grid-area: sean;
+    justify-content: center;
+    align-items: center;
+    margin: auto;
+  }
+  
   .footer {
   margin: 0 auto;
   }
@@ -73,6 +83,7 @@
   .cbox {
   width: 50vw;
   height: 290px;
+  grid-area: shoutbox;
   border: none;
   margin: 0;
   padding: 0;
@@ -138,7 +149,17 @@
   <div class="reddit"> 
      <blockquote class="reddit-embed-bq" data-embed-height="316"><a href="https://old.reddit.com/r/singaporemusicchat/comments/1n8oolm/weekend_list_singapore_concerts_gigs_parties_5/"><a></a>Weekend List</a><br> by<a href="https://www.reddit.com/user/redditduk/">u/redditduk</a> in<a href="https://www.reddit.com/r/singaporemusicchat/">singaporemusicchat</a></blockquote><script async="" src="https://embed.reddit.com/widgets.js" charset="UTF-8"></script>
   </div>
+
+<!-- sean --> 
+
+<div class="sean">
+    <div><h1>Sean's List</h1></div>
+    <div class ="seanarea"><img src="allgigsoct2025.jpg"></div>
+</div>
+
+
   
+<!-- cbox --> 
   
 <div class="footer">
 <h2>Chatbox </h2>
