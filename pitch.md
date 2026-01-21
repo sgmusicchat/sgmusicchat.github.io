@@ -10,13 +10,13 @@
 	- Even today - [On the quality of concerts in Singapore](https://www.reddit.com/r/singaporemusicchat/comments/1qilnf8/why_are_concerts_postcovid_so_crap/)
 6. Connection with the offcial Reddit team, who are partners looking to grow reddit engagement
 
-# Future Collaboration Ideas
+# Collaboration Ideas
 1. Reddit AMAs: like Fariz Jabba 
 	- Proven record of engagement with official content
 	- The Japanese alternative chat, blackpink, drum chat are proof that users are enganged if the content is discursive
 	- Draws on the inherent strengths of reddit, which is a consistent and clear way of connecting directly to the fans in a orderly format than a linear mode like telegram
 	- Visibility post-event: Social media like instagram prioritises most recent content, while reddit has a more persistent visibility - often showing up as top posts when users join a group, or by sorting in the page
-	- Engagement and conversations build trust
+	- Engagement and conversations build trust and connection.
 2. Occasional Verticals / Special Contributor (highlighted post)
 	- adding as a named contributer and a touchpoint beyond usual social media - which are harder to find on google.
 	- Redit's inherent advantage is still its visibility in google search, and on the front page of reddit.
