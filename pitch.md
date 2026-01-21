@@ -1,6 +1,6 @@
 Ethos: Providing an accessible yet non-pandering ecosystem for arts-inclined people living in Singapore to keep track of interesting event for the time-scarce or arts-curious neophytes to begin their journey
 
-# Engangement
+# Engangement Figures
 1. 2.7k - Subscribers on Reddit, and plenty of 'non-subscribed/Search Engine' lurkers
 2. 26k Views with 11k unique impressions - Monthly Visit Rate
 3. 4.1k Views - A Sample Past 7 Days in a slower month of January
@@ -11,14 +11,14 @@ Ethos: Providing an accessible yet non-pandering ecosystem for arts-inclined peo
 	- Even today - [On the quality of concerts in Singapore](https://www.reddit.com/r/singaporemusicchat/comments/1qilnf8/why_are_concerts_postcovid_so_crap/)
 6. Connection with the offcial Reddit team, who are also partners looking for ways to grow social media
 
-# Ideas that we can work with
+# Future Collaboration Ideas
 1. Reddit AMAs: like Fariz Jabba 
 	- Proven record of engagement with official content
 	- The Japanese alternative chat, blackpink, drum chat are proof that users are enganged if the content is discursive
 	- Draws on the inherent strengths of reddit, which is a consistent and clear way of connecting directly to the fans in a orderly format than a linear mode like telegram
 	- Visibility post-event: Social media like instagram prioritises most recent content, while reddit has a more persistent visibility - often showing up as top posts when users join a group, or by sorting in the page
 	- Engagement and conversations build trust
-2. Occasional verticals 
+2. Occasional Verticals / Special Contributor (highlighted post)
 	- adding as a named contributer and a touchpoint beyond traditional social media which may be harder to find on google.
 	- Redit's inherent advatnage is still its visibility in google search
 3. Future plans: A website outside social media
