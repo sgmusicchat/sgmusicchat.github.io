@@ -18,13 +18,13 @@
 	- Visibility post-event: Social media like instagram prioritises most recent content, while reddit has a more persistent visibility - often showing up as top posts when users join a group, or by sorting in the page
 	- Engagement and conversations build trust
 2. Occasional Verticals / Special Contributor (highlighted post)
-	- adding as a named contributer and a touchpoint beyond traditional social media which may be harder to find on google.
-	- Redit's inherent advatnage is still its visibility in google search
+	- adding as a named contributer and a touchpoint beyond usual social media - which are harder to find on google.
+	- Redit's inherent advantage is still its visibility in google search, and on the front page of reddit.
 3. Future plans: A website outside social media
-	- The listings will have more user-submissions rather than myself as a the central node which increases reliability and time horizon
+	- The listings will have more user-submissions, rather than myself as a the central node, which increases reliability and time horizon
+	- Possible Editorials: Thinking of how best to serve as public education for the arts in an accessible but non-pandering style, that elevates both local and international acts on an equal pedestal.
 
 # Direction
-- Thinking of how best to do editorials that serve as public education for the arts in an accessible but non-pandering style, that elevates both local and international acts on an equal pedestal.
 
 - Ethos: Accessible but non-pandering ecosystem for arts-inclined people living in Singapore to keep track of interesting event for the time-scarce or arts-curious neophytes to begin their journey.
 	- One that doesn't silo local and international acts as separate and respecting audiences need to be attending the most fulfilling arts events to their need.
