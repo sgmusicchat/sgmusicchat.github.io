@@ -1,4 +1,4 @@
-# Engangement Figures
+# Engagement Figures
 1. 2.7k Reddit Subscribers - and plenty of 'non-subscribed/Search Engine' lurkers
 2. Monthly Visit Rate - 26k Views with 11k unique impressions on the busy month of December 
 3. 4.1k Views - A Sample Past 7 Days in a slower month of January
