@@ -27,5 +27,5 @@
 # Direction
 
 - Ethos: Accessible but non-pandering ecosystem for arts-inclined people living in Singapore to keep track of interesting events, especilaly for the time-scarce or arts-curious neophytes to begin their journey.
-	- One that doesn't silo local and international acts as separate and respecting audiences need to be attending the most fulfilling arts events to their needs
+	- One that doesn't silo local and international acts as separate that creates a mental categorical distinction as one being 'inferior'. Respecting audiences desire to be attending the most fulfilling arts events to their needs, not out of pure duty.
 
