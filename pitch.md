@@ -1,0 +1,26 @@
+Ethos: Providing an accessible yet non-pandering ecosystem for arts-inclined people living in Singapore to keep track of interesting event for the time-scarce or arts-curious neophytes to begin their journey
+
+# Engangement
+1. 2.7k Subscribers on Reddit
+2. Monthly Visit Rate at 26k Views with 11k unique impressions
+4. A Sample Past 7 Days in a slower month of January - 4.1k Views
+5. Sample of the best content, some user submitted content
+	- [Fariz Jabba AMA of over 100 comments](https://www.reddit.com/r/singaporemusicchat/comments/1pnxm8y/im_fariz_jabba_one_of_southeast_asias_top_10/) - this was in conjunction with Reddit HQ
+	- Recently we have two topics on [Japanese Alternative scene in Singapore](https://www.reddit.com/r/singaporemusicchat/comments/1qfyw9e/japanese_alternative_fans_in_sg/) and one looking for [experimental music in Singapore](https://old.reddit.com/r/singaporemusicchat/comments/1qgtpi6/record_stores_specializing_in_experimental_music/), which would be in line with SCAPE's programming
+	- Which [SG Arts artists are underrated](https://www.reddit.com/r/singaporemusicchat/comments/1n81vr1/which_sg_artist_deserves_way_more_love_than/) topic
+	- Even today - [On the quality of concerts in Singapore](https://www.reddit.com/r/singaporemusicchat/comments/1qilnf8/why_are_concerts_postcovid_so_crap/)
+6. Connection with the offcial Reddit team, who are also partners looking for ways to grow social media
+
+# Ideas that we can work with
+1. Reddit AMAs: like Fariz Jabba 
+	- Proven record of engagement with official content
+	- The Japanese alternative chat, blackpink, drum chat are proof that users are enganged if the content is discursive
+	- Draws on the inherent strengths of reddit, which is a consistent and clear way of connecting directly to the fans in a orderly format than a linear mode like telegram
+	- Visibility post-event: Social media like instagram prioritises most recent content, while reddit has a more persistent visibility - often showing up as top posts when users join a group, or by sorting in the page
+	- Engagement and conversations build trust
+2. Occasional verticals 
+	- adding as a named contributer and a touchpoint beyond traditional social media which may be harder to find on google.
+	- Redit's inherent advatnage is still its visibility in google search
+3. Future plans: A website outside social media
+	- The listings will have more user-submissions rather than myself as a the central node which increases reliability and time horizon
+	- Am thinking of how best to do editorials that serve as public education for the arts in an accessible but non-pandering style, that elevates both local and international acts on an equal pedestal, which has always been the ethos of the project
