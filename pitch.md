@@ -1,10 +1,10 @@
 Ethos: Providing an accessible yet non-pandering ecosystem for arts-inclined people living in Singapore to keep track of interesting event for the time-scarce or arts-curious neophytes to begin their journey
 
 # Engangement
-1. 2.7k Subscribers on Reddit
-2. Monthly Visit Rate at 26k Views with 11k unique impressions
-4. A Sample Past 7 Days in a slower month of January - 4.1k Views
-5. Sample of the best content, some user submitted content
+1. 2.7k - Subscribers on Reddit, and plenty of 'non-subscribed/Search Engine' lurkers
+2. 26k Views with 11k unique impressions - Monthly Visit Rate
+3. 4.1k Views - A Sample Past 7 Days in a slower month of January
+4. Sample of the best content, some user submitted content
 	- [Fariz Jabba AMA of over 100 comments](https://www.reddit.com/r/singaporemusicchat/comments/1pnxm8y/im_fariz_jabba_one_of_southeast_asias_top_10/) - this was in conjunction with Reddit HQ
 	- Recently we have two topics on [Japanese Alternative scene in Singapore](https://www.reddit.com/r/singaporemusicchat/comments/1qfyw9e/japanese_alternative_fans_in_sg/) and one looking for [experimental music in Singapore](https://old.reddit.com/r/singaporemusicchat/comments/1qgtpi6/record_stores_specializing_in_experimental_music/), which would be in line with SCAPE's programming
 	- Which [SG Arts artists are underrated](https://www.reddit.com/r/singaporemusicchat/comments/1n81vr1/which_sg_artist_deserves_way_more_love_than/) topic
